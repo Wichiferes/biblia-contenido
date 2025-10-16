@@ -1,6 +1,6 @@
 # El Libro de Filipenses (NTV)
 
-*Una guía de estudio en formato Markdown*
+*por Luis*
 
 La carta de Pablo a los creyentes en Filipos es una de sus epístolas más personales y cálidas. El tema central que resuena a lo largo de sus cuatro capítulos es el **GOZO**, un gozo inquebrantable que no depende de las circunstancias, sino de una relación profunda con **Jesucristo**.
 
