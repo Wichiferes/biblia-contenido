@@ -1268,3 +1268,814 @@ Así que **Judá** se los dio, se acostó con ella y la dejó embarazada. **19**
 —¿Cómo te abriste paso? —exclamó la partera. Y lo llamó **Fares**.
 **30** Después nació su hermano, el que tenía el hilo escarlata en la muñeca, y lo llamaron **Zera**.
 
+## Capítulo 39
+
+### José y la esposa de Potifar
+
+**¹** Cuando los **ismaelitas** llevaron a **José** a **Egipto**, **Potifar**, un **egipcio** que era funcionario del **faraón** y capitán de la guardia, se lo compró a ellos.
+
+**²** Ahora bien, el **SEÑOR** estaba con **José** y las cosas le salían muy bien. Mientras **José** vivía en la casa de su patrón **egipcio**, **³** este se dio cuenta de que el **SEÑOR** estaba con **José** y lo hacía prosperar en todo. **⁴** **José** se ganó la confianza de **Potifar**, y este lo nombró mayordomo de toda su casa y le confió la administración de todos sus bienes. **⁵** Por causa de **José**, el **SEÑOR** bendijo la casa del **egipcio** **Potifar** a partir del momento en que puso a **José** a cargo de su casa y de todos sus bienes. La **bendición** del **SEÑOR** se extendió sobre todo lo que tenía el **egipcio**, tanto en la casa como en el campo.
+
+> **⁶** Por esto **Potifar** dejó todo a cargo de **José**, y tan solo se preocupaba por lo que tenía que comer. **José** tenía muy buen físico y era muy atractivo.
+
+**⁷** Después de algún tiempo, la esposa de su patrón empezó a echarle el ojo y le propuso:  
+—*Acuéstate conmigo*.
+
+**⁸** Pero **José** no quiso saber nada, sino que le contestó:  
+—Mire, señora: mi patrón ya no tiene que preocuparse de nada en la casa, porque todo me lo ha confiado a mí. **⁹** En esta casa no hay nadie más importante que yo. Mi patrón no me ha negado nada, excepto meterme con usted, que es su esposa. **¿Cómo podría yo cometer tal maldad y pecar así contra Dios?**
+
+**¹⁰** Y por más que ella lo acosaba día tras día para que se acostara con ella y le hiciera compañía, **José** se mantuvo firme en su rechazo.
+
+**¹¹** Un día, en un momento en que **José** entró en la casa para cumplir con sus responsabilidades, ninguno de los siervos de la casa andaba por allí. **¹²** Entonces ella lo agarró del manto y le rogó: *«¡Acuéstate conmigo!»* Pero **José**, dejando el manto en manos de ella, salió corriendo de la casa. **¹³** Al ver ella que él había dejado el manto en sus manos y había salido corriendo, **¹⁴** llamó a los siervos de la casa y les dijo:  
+—*¡Miren!* Ese **hebreo** que nos trajo mi esposo solo ha venido a burlarse de nosotros. Entró a la casa con la intención de acostarse conmigo, pero yo grité con todas mis fuerzas. **¹⁵** En cuanto me oyó gritar, salió corriendo y dejó su manto a mi lado.
+
+**¹⁶** La mujer guardó el manto de **José** hasta que su marido volvió a su casa. **¹⁷** Entonces le contó la misma historia:  
+—Ese esclavo **hebreo** que nos trajiste quiso aprovecharse de mí. **¹⁸** Pero en cuanto grité con todas mis fuerzas, salió corriendo y dejó su manto a mi lado.
+
+**¹⁹** Cuando el patrón de **José** escuchó de labios de su mujer cómo la había tratado el esclavo, se enfureció **²⁰** y mandó que echaran a **José** en la cárcel donde estaban los presos del rey.
+
+> **²⁰** Pero aun en la cárcel el **SEÑOR** estaba con él y no dejó de mostrarle su **amor**.
+
+**²¹** Hizo que se ganara la confianza del guardia de la cárcel, **²²** el cual puso a **José** a cargo de todos los prisioneros y de todo lo que allí se hacía. **²³** Como el **SEÑOR** estaba con **José** y hacía prosperar todo lo que él hacía, el guardia de la cárcel no se preocupaba de nada de lo que dejaba en sus manos.
+
+---
+
+## Capítulo 40
+
+### José interpreta dos sueños
+
+**¹** Tiempo después, el copero y el panadero del rey de **Egipto** ofendieron a su señor, el rey de **Egipto**. **²** El **faraón** se enojó contra estos dos funcionarios suyos, es decir, contra el jefe de los coperos y el jefe de los panaderos, **³** y los mandó a la cárcel de la casa del capitán de la guardia, donde también estaba preso **José**. **⁴** El capitán de la guardia se los entregó a **José** para que los atendiera.
+
+Después de haber estado algún tiempo en la cárcel, **⁵** una misma noche los dos, es decir, el copero y el panadero del rey de **Egipto**, que estaban detenidos en la cárcel, tuvieron cada uno un sueño, cada sueño con su propio significado.
+
+**⁶** A la mañana siguiente, cuando **José** fue a verlos, los encontró muy preocupados, **⁷** así que les preguntó a los dos funcionarios del **faraón** que estaban con él bajo arresto en la casa de su señor:  
+—*¿Por qué andan hoy tan cabizbajos?*
+
+**⁸** —Tuvimos un sueño —respondieron—, y no hay nadie que nos lo interprete.  
+—*¿Acaso no es Dios quien da la interpretación?* —les preguntó **José**—. *¿Por qué no me cuentan lo que soñaron?*
+
+**⁹** El jefe de los coperos le contó a **José** el sueño que había tenido:  
+—Soñé que frente a mí había una vid, **¹⁰** la cual tenía tres ramas. En cuanto la vid echó brotes, floreció y maduró las uvas. **¹¹** Yo tenía la copa del **faraón** en la mano. Tomé las uvas, las exprimí en la copa, y luego puse la copa en manos del **faraón**.
+
+> **¹²** Entonces **José** le dijo:  
+—**Esta es la interpretación de su sueño: Las tres ramas son tres días. ¹³ Dentro de los próximos tres días el faraón lo indultará a usted y volverá a colocarlo en su cargo. Usted volverá a poner la copa del faraón en su mano, tal como lo hacía antes, cuando era su copero.**
+
+**¹⁴** *Yo le ruego que no se olvide de mí*. Cuando todo se haya arreglado, por favor háblele usted de mí al **faraón** para que me saque de esta cárcel. **¹⁵** A mí me trajeron por la fuerza, de la tierra de los **hebreos**. *¡Yo no he hecho nada aquí para que me echaran en la cárcel!*
+
+**¹⁶** Cuando el jefe de los panaderos vio que **José** había dado una interpretación favorable, le dijo:  
+—Yo también tuve un sueño. Soñé que llevaba tres canastas de pan sobre la cabeza. **¹⁷** En la canasta de encima había un gran surtido de repostería para el **faraón**, pero las aves venían a comer de la canasta que llevaba sobre la cabeza.
+
+**¹⁸** —Esta es la interpretación de su sueño —le dijo **José**—: **Las tres canastas son tres días. ¹⁹ Dentro de los próximos tres días, el faraón mandará que a usted lo decapiten y lo cuelguen de un árbol, y las aves devorarán su cuerpo.**
+
+**²⁰** En efecto, tres días después el **faraón** celebró su cumpleaños y ofreció una gran fiesta para todos sus funcionarios. En presencia de estos hizo comparecer al jefe de los coperos y al jefe de los panaderos. **²¹** Al jefe de los coperos lo restituyó a su cargo para que, una vez más, pusiera la copa en manos del **faraón**. **²²** Pero al jefe de los panaderos mandó que lo ahorcaran. Todo sucedió tal como **José** lo había interpretado.
+
+**²³** Sin embargo, el jefe de los coperos no se acordó de **José**, sino que se olvidó de él por completo.
+
+---
+
+## Capítulo 41
+
+### Los sueños del faraón
+
+**¹** Dos años más tarde, el **faraón** tuvo un sueño: Estaba de pie junto al río **Nilo**, **²** cuando de pronto vio que del río salían siete vacas, hermosas y gordas, y se pusieron a pacer entre los juncos. **³** Detrás de ellas salieron otras siete vacas, feas y flacas, que se pararon a orillas del **Nilo**, junto a las primeras. **⁴** ¡Y las vacas feas y flacas se comieron a las vacas hermosas y gordas! En ese momento el **faraón** se despertó.
+
+**⁵** Pero volvió a dormirse y tuvo otro sueño: Siete espigas de trigo, grandes y hermosas, crecían de un solo tallo. **⁶** Tras ellas brotaron otras siete espigas, delgadas y quemadas por el viento solano. **⁷** ¡Y las siete espigas delgadas se comieron a las espigas grandes y hermosas! En ese momento el **faraón** se despertó y se dio cuenta de que solo era un sueño.
+
+**⁸** Por la mañana se levantó muy preocupado, mandó llamar a todos los magos y sabios de **Egipto**, y les contó los dos sueños. Pero nadie pudo decirle al **faraón** lo que significaban.
+
+**⁹** Entonces el jefe de los coperos le dijo al **faraón**:  
+—Ahora me doy cuenta del grave error que he cometido. **¹⁰** Cuando Su Majestad se enojó con sus servidores, a mí y al jefe de los panaderos nos mandó a la cárcel, a la casa del capitán de la guardia. **¹¹** Una misma noche los dos tuvimos un sueño, cada sueño con su propio significado. **¹²** Allí, con nosotros, había un joven **hebreo**, esclavo del capitán de la guardia. Le contamos nuestros sueños, y a cada uno nos interpretó el sueño, **¹³** y todo sucedió tal como él lo interpretó. A mí me restituyeron mi cargo, y al jefe de los panaderos lo colgaron.
+
+**¹⁴** El **faraón** mandó llamar a **José**, y en seguida lo sacaron de la cárcel. Luego de afeitarse y cambiarse de ropa, **José** se presentó ante el **faraón**, **¹⁵** quien le dijo:  
+—Tuve un sueño que nadie ha podido interpretar. Pero me he enterado de que, cuando tú oyes un sueño, eres capaz de interpretarlo.
+
+> **¹⁶** —**No soy yo quien puede hacerlo** —respondió **José**—, **sino que es Dios quien le dará al faraón una respuesta favorable.**
+
+**¹⁷** El **faraón** le contó a **José**:  
+—En mi sueño, yo estaba de pie a orillas del **Nilo**. **¹⁸** De pronto, del río salieron siete vacas gordas y hermosas, y se pusieron a pacer entre los juncos. **¹⁹** Detrás de ellas salieron otras siete vacas, feas, flacas y huesudas. *¡Jamás había visto vacas tan raquíticas en toda la tierra de Egipto!* **²⁰** Y las vacas feas y flacas se comieron a las siete vacas gordas. **²¹** Pero, después de habérselas comido, nadie hubiera dicho que lo habían hecho, pues las vacas flacas seguían tan feas como antes. Fue entonces cuando me desperté.
+
+**²²** »Después tuve otro sueño: Siete espigas grandes y hermosas crecían de un solo tallo. **²³** Tras ellas brotaron otras siete espigas marchitas, delgadas y quemadas por el viento solano. **²⁴** ¡Y las siete espigas delgadas se comieron a las espigas hermosas! Todo esto se lo conté a los magos, pero ninguno de ellos me lo pudo interpretar.
+
+**²⁵** Entonces **José** le explicó al **faraón**:  
+—**En realidad, los dos sueños de Su Majestad son uno solo. Dios le ha anunciado lo que está por hacer.** **²⁶** Las siete vacas hermosas y las siete espigas hermosas son siete años. Se trata del mismo sueño. **²⁷** Las siete vacas feas y flacas que salieron detrás de las primeras, y las siete espigas delgadas y quemadas por el viento solano, son también siete años. Pero estos serán siete años de hambre.
+
+> **²⁸** **Es tal como le he dicho a Su Majestad: Dios le ha mostrado lo que está por hacer. ²⁹ Están por venir siete años de mucha abundancia en toda la tierra de Egipto, ³⁰ a los que les seguirán siete años de hambre, que harán olvidar toda la abundancia que antes hubo. ¡El hambre acabará con Egipto!**
+
+**³¹** Tan terrible será el hambre, que nadie se acordará de la abundancia que antes hubo en el país. **³²** El sueño se le repitió al **faraón** dos veces porque **Dios** ha resuelto firmemente hacer esto, y lo llevará a cabo muy pronto.
+
+### José, gobernador de Egipto
+
+**³³** »Por todo esto, yo le propongo a Su Majestad buscar un hombre competente y sabio, para que se encargue de la tierra de **Egipto**. **³⁴** Además, Su Majestad debería nombrar inspectores en todo **Egipto**, para que durante los siete años de abundancia recauden la quinta parte de la cosecha. **³⁵** Bajo las órdenes de Su Majestad, ellos deberán juntar el grano de los buenos años que vienen y almacenarlo en las ciudades, para que haya comida de reserva. **³⁶** Este grano será una reserva para los siete años de hambre que sufrirá **Egipto**. Así el país no será devastado por el hambre.
+
+**³⁷** Al **faraón** y a sus servidores les pareció bien el plan. **³⁸** Así que el **faraón** les preguntó:  
+—*¿Podremos encontrar una persona así, en quien repose el espíritu de Dios?*
+
+**³⁹** Luego le dijo a **José**:  
+—**Puesto que Dios te ha revelado todo esto, no hay nadie más competente y sabio que tú. ⁴⁰ Quedarás a cargo de mi palacio, y todo mi pueblo cumplirá tus órdenes. Solo yo tendré más autoridad que tú, porque soy el rey.**
+
+**⁴¹** Así que el **faraón** le informó a **José**:  
+—Mira, yo te pongo a cargo de todo el territorio de **Egipto**.
+
+**⁴²** De inmediato, el **faraón** se quitó el anillo oficial y se lo puso a **José**. Hizo que lo vistieran con ropas de lino fino, y que le pusieran un collar de oro en el cuello. **⁴³** Después lo invitó a subirse al carro reservado para el segundo en autoridad, y ordenó que gritaran: *«¡Abran paso!»* Fue así como el **faraón** puso a **José** al frente de todo el territorio de **Egipto**.
+
+**⁴⁴** Entonces el **faraón** le dijo:  
+—Yo soy el **faraón**, pero nadie en todo **Egipto** podrá hacer nada sin tu permiso.
+
+**⁴⁵** Y le cambió el nombre a **José**, y lo llamó **Zafnat Panea**. Además, le dio por esposa a **Asenat**, hija de **Potifera**, sacerdote de la ciudad de **On**. De este modo quedó **José** a cargo de **Egipto**.
+
+**⁴⁶** **José** tenía treinta años cuando comenzó a trabajar al servicio del **faraón**, rey de **Egipto**. Tan pronto como salió de la presencia del **faraón**, **José** recorrió todo el territorio de **Egipto**.
+
+### Los siete años de abundancia y los siete años de hambre
+
+**⁴⁷** Durante los siete años de abundancia la tierra produjo grandes cosechas, **⁴⁸** así que **José** fue recogiendo todo el alimento que se produjo en **Egipto** durante esos años, y lo almacenó en las ciudades. En cada ciudad almacenaba el alimento que se cosechaba en los campos cercanos. **⁴⁹** Fue tanto el trigo que almacenó **José** que dejó de llevarse el control, porque era como medir la arena del mar.
+
+**⁵⁰** Antes de que llegara el primer año del hambre, **José** tuvo dos hijos con su esposa **Asenat**, la hija de **Potifera**, sacerdote de la ciudad de **On**. **⁵¹** Al primero lo llamó **Manasés**, porque dijo: «**Dios** ha hecho que me olvide de todos mis problemas, y de mi casa paterna». **⁵²** Al segundo lo llamó **Efraín**, porque dijo: «**Dios** me ha hecho fecundo en esta tierra donde he sufrido».
+
+**⁵³** Los siete años de abundancia en **Egipto** llegaron a su fin, **⁵⁴** y comenzaron los siete años de hambre, tal como **José** lo había anunciado. Hubo hambre en todos los países, pero en toda la tierra de **Egipto** había alimento. **⁵⁵** Cuando en **Egipto** se comenzó a sentir el hambre, el pueblo clamó al **faraón** pidiéndole comida. Entonces el **faraón** les decía a todos los **egipcios**: *«Vayan a ver a José, y hagan lo que él les diga».*
+
+**⁵⁶** Cuando ya el hambre se había extendido por todo el territorio, y había arreciado, **José** abrió los graneros para venderles alimento a los **egipcios**. **⁵⁷** Además, de todos los países llegaban a **Egipto** para comprarle alimento a **José**, porque el hambre cundía ya por todo el mundo.
+
+---
+
+## Resumen de los Capítulos 39-41
+
+| **Tema Principal** | **Detalle Clave** | **Resultado** |
+|---|---|---|
+| **José en casa de Potifar** | El **SEÑOR** estaba con **José** | **José** prospera y es puesto a cargo de todo |
+| **La tentación y la integridad** | **José** rechaza a la esposa de **Potifar**: *"¿Cómo podría pecar contra Dios?"* | **José** es falsamente acusado y encarcelado |
+| **José en la prisión** | El **SEÑOR** estaba con **José** y le mostró su **amor** | **José** gana favor y es puesto a cargo de los prisioneros |
+| **Interpretación de sueños** | **José** interpreta los sueños del copero y del panadero | Las interpretaciones se cumplen, pero el copero se olvida de **José** |
+| **Los sueños del faraón** | **Faraón** tiene sueños que nadie puede interpretar | El copero recuerda a **José** |
+| **José interpreta los sueños del faraón** | **José** da la gloria a **Dios**: *"No soy yo, sino Dios"* | **José** revela 7 años de abundancia y 7 de hambre |
+| **José es exaltado** | **Faraón** reconoce el **espíritu de Dios** en **José** | **José** es nombrado segundo en autoridad sobre todo **Egipto** |
+| **José administra la abundancia** | **José** almacena grano durante los 7 años de abundancia | **Egipto** está preparado para la hambruna |
+
+---
+
+## Versículos Clave para Memorizar
+
+> **Génesis 39:2-3** — Ahora bien, el **SEÑOR** estaba con **José** y las cosas le salían muy bien. Mientras **José** vivía en la casa de su patrón **egipcio**, este se dio cuenta de que el **SEÑOR** estaba con **José** y lo hacía prosperar en todo.
+
+> **Génesis 39:9** — **¿Cómo podría yo cometer tal maldad y pecar así contra Dios?**
+
+> **Génesis 41:16** — **No soy yo quien puede hacerlo** —respondió **José**—, **sino que es Dios quien le dará al faraón una respuesta favorable.**
+
+> **Génesis 41:39-40** — **Puesto que Dios te ha revelado todo esto, no hay nadie más competente y sabio que tú. Quedarás a cargo de mi palacio, y todo mi pueblo cumplirá tus órdenes.**
+
+## Capítulo 42
+
+### Los hermanos de José van a Egipto
+
+**¹** Cuando **Jacob** se enteró de que había alimento en **Egipto**, les dijo a sus hijos:  
+—*¿Qué hacen ahí parados, mirándose unos a otros?* **²** He sabido que hay alimento en **Egipto**. Vayan allá y compren comida para nosotros, para que no muramos, sino que podamos sobrevivir.
+
+**³** Diez de los hermanos de **José** fueron a **Egipto** a comprar alimento. **⁴** Pero **Jacob** no dejó que **Benjamín**, el hermano de **José**, se fuera con ellos porque pensó: *«No vaya a ser que le pase alguna desgracia»*.
+
+**⁵** Fue así como los hijos de **Israel** fueron a comprar alimento, al igual que otros, porque el hambre se había apoderado de la región de **Canaán**.
+
+**⁶** **José** era el gobernador del país, y el que vendía trigo a todo el mundo. Cuando sus hermanos llegaron ante él, se postraron rostro en tierra. **⁷** En cuanto **José** vio a sus hermanos, los reconoció; pero, fingiendo no conocerlos, les habló con rudeza:  
+—*¿De dónde vienen?*  
+—Venimos de **Canaán**, para comprar alimento —contestaron.
+
+**⁸** Aunque **José** había reconocido a sus hermanos, ellos no lo reconocieron a él. **⁹** En ese momento se acordó **José** de los sueños que había tenido acerca de ellos, y les dijo:  
+—*¡Ustedes son espías!* ¡Han venido para investigar las zonas desprotegidas del país!
+
+**¹⁰** —*¡No, señor!* —respondieron—. Sus servidores hemos venido a comprar alimento. **¹¹** Todos nosotros somos hijos de un mismo padre. Somos gente honrada. *¡Sus servidores no somos espías!*
+
+**¹²** —*¡No es cierto!* —insistió **José**—. Ustedes han venido para investigar las zonas desprotegidas del país.
+
+**¹³** —Tus servidores somos doce hermanos, todos hijos de un mismo padre que vive en **Canaán** —explicaron ellos—. El menor se ha quedado con nuestro padre, y el otro ya no vive.
+
+**¹⁴** Pero **José** les replicó:  
+—*¡Tal como les dije, ustedes son espías!* **¹⁵** Y voy a ponerlos a prueba. Juro por la vida del **faraón** que no saldrán de este lugar hasta que su hermano menor venga aquí. **¹⁶** Envíen a uno de ustedes para que traiga a su hermano; los demás se quedarán en la cárcel. Así comprobaré si es cierto lo que dicen. Y si no, *¡juro por la vida del faraón que son espías!*
+
+**¹⁷** Dicho esto, los metió en la cárcel durante tres días.
+
+### Los hermanos regresan a Canaán
+
+**¹⁸** Al tercer día, **José** les dijo:  
+—Yo soy un hombre **temeroso de Dios**. Hagan lo siguiente y salvarán su vida: **¹⁹** Si de veras son gente honrada, quédese uno de ustedes bajo custodia, y los demás vayan y lleven alimento para calmar el hambre de sus familias. **²⁰** Pero tráiganme a su hermano menor, para comprobar que dicen la verdad y que no merecen morir.
+
+Así lo hicieron. **²¹** Entonces se dijeron unos a otros:  
+—*Sin duda estamos sufriendo las consecuencias de lo que hicimos con nuestro hermano.* Aunque vimos su angustia cuando nos suplicaba que le tuviéramos compasión, no le hicimos caso. *Por eso ahora nos vemos en aprietos.*
+
+> **²²** **Rubén** les reclamó:  
+—**¿No les advertí que no le hicieran daño al muchacho? ¡Pero ustedes no me hicieron caso! Ahora tenemos que pagar el precio de su sangre.**
+
+**²³** Ellos no sabían que **José** entendía todo lo que estaban diciendo, pues se había valido de un intérprete. **²⁴** **José** se apartó de ellos para llorar. Cuando se controló y pudo hablarles, apartó a **Simeón** y ordenó que lo ataran en presencia de ellos.
+
+**²⁵** **José** ordenó que llenaran de trigo las bolsas de sus hermanos, pero también que devolvieran el dinero de cada uno de ellos, poniéndolo en su bolsa, y que les dieran provisiones para el viaje. Y así se hizo.
+
+**²⁶** Entonces los hermanos de **José** cargaron el alimento sobre sus asnos y se fueron de allí. **²⁷** Cuando llegaron al lugar donde iban a pasar la noche, uno de ellos abrió su bolsa para darles de comer a sus asnos, y allí en la abertura de la bolsa encontró su dinero. **²⁸** Entonces les dijo a sus hermanos:  
+—*¡Me han devuelto mi dinero! ¡Aquí está, en mi bolsa!*
+
+Atónitos y temblando de miedo, se dijeron unos a otros:  
+—*¿Qué es esto que Dios nos ha hecho?*
+
+**²⁹** Cuando llegaron a **Canaán**, donde estaba su padre **Jacob**, le contaron todo lo que les había pasado:
+
+**³⁰** —El hombre que gobierna aquel país nos trató con dureza y nos acusó de ser espías. **³¹** Nosotros le dijimos que éramos gente honrada, y no espías; **³²** que éramos doce hermanos, hijos de un mismo padre; que uno de ellos ya no vivía, y que el más pequeño se había quedado con nuestro padre en **Canaán**. **³³** Pero el gobernador de aquel país nos respondió: "Así sabré si ustedes son gente honrada: Dejen aquí conmigo a uno de sus hermanos; tomen lo necesario para calmar el hambre de sus familias, y váyanse. **³⁴** Pero tráiganme a su hermano menor para que yo sepa que ustedes no son espías, sino gente honrada. Entonces les devolveré a su hermano y podrán andar libremente por el país".
+
+**³⁵** Cuando comenzaron a vaciar sus costales, todos se aterrorizaron, pues dentro de cada costal estaba la bolsa de dinero de cada uno de ellos. Ante tal descubrimiento, tanto ellos como su padre se llenaron de temor. **³⁶** Entonces su padre **Jacob** les dijo:  
+—*¡Ustedes van a dejarme sin hijos! ¡José ya no está con nosotros, Simeón tampoco está aquí, y ahora se quieren llevar a Benjamín! ¡Todo esto me perjudica!*
+
+**³⁷** Pero **Rubén** le reclamó a su padre:  
+—Podrás matar a mis dos hijos, si no te devuelvo a **Benjamín**. *¡Déjalo bajo mi cuidado, que yo te lo devolveré!*
+
+**³⁸** —*¡Mi hijo no se irá con ustedes!* —replicó **Jacob**—. Su hermano **José** ya está muerto, y ahora resulta que **Benjamín** es el único que me queda. Si le llega a pasar una desgracia en el viaje que van a emprender, ustedes tendrán la culpa de que este pobre viejo se muera de tristeza.
+
+---
+
+## Capítulo 43
+
+### Los hermanos de José regresan a Egipto con Benjamín
+
+**¹** El hambre seguía aumentando en aquella región. **²** Llegó el momento en que se les acabó el alimento que habían traído de **Egipto**. Entonces su padre les dijo:  
+—Vuelvan a **Egipto** y compren un poco más de alimento para nosotros.
+
+**³** Pero **Judá** le recordó:  
+—Aquel hombre nos advirtió claramente que no nos presentáramos ante él, a menos que lleváramos a nuestro hermano menor. **⁴** Si dejas que nuestro hermano menor vaya con nosotros, iremos a comprarte alimento. **⁵** De lo contrario, no tiene sentido ir. *¡Ya te dijimos que ese hombre fue muy claro al decirnos que no nos presentáramos ante él sin nuestro hermano menor!*
+
+**⁶** —*¿Por qué me han causado este mal?* —inquirió **Israel**—. *¿Por qué le dijeron a ese hombre que tenían otro hermano?*
+
+**⁷** —Porque aquel hombre nos preguntó específicamente acerca de nuestra familia —respondieron ellos—. «¿Vive todavía el padre de ustedes?», nos preguntó. «¿Tienen algún otro hermano?» Lo único que hicimos fue responder a sus preguntas. *¿Cómo íbamos a saber que él nos pediría llevar a nuestro hermano?*
+
+**⁸** **Judá** le dijo a su padre **Israel**:  
+—Envía al joven conmigo, y nos iremos ahora mismo, para que nosotros y nuestros hijos podamos seguir viviendo y no muramos. **⁹** Yo te respondo por su seguridad; a mí me pedirás cuentas. Si no te lo devuelvo sano y salvo, *seré culpable ante ti toda mi vida*. **¹⁰** Si no nos hubiéramos demorado tanto, ya habríamos ido dos veces a **Egipto** y regresado otras tantas.
+
+**¹¹** Entonces su padre **Israel** les dijo:  
+—Ya que no hay otro remedio, hagan lo siguiente: Echen en sus costales los mejores productos de esta región, y llévenselos de regalo a ese hombre: un poco de bálsamo, un poco de miel, perfumes, mirra, nueces, almendras. **¹²** Lleven también el doble del dinero, pues deben devolver la cantidad que encontraron en sus bolsas. Tal vez hubo un error. **¹³** Vayan con su hermano y preséntense ante ese hombre. **¹⁴** Que **el Dios Todopoderoso** permita que ese hombre les tenga compasión y deje libre a su otro hermano, y además deje que **Benjamín** regrese con ustedes. En cuanto a mí, si he de perder a mis hijos, ¡qué le voy a hacer! ¡Los perderé!
+
+### José recibe a sus hermanos
+
+**¹⁵** Ellos tomaron los regalos, el doble del dinero y a **Benjamín**, y enseguida emprendieron el viaje a **Egipto**. Allí se presentaron ante **José**.
+
+**¹⁶** Cuando **José** vio que **Benjamín** los acompañaba, le dijo al mayordomo de su casa: *«Lleva a estos hombres a mi casa. Luego mata un animal y prepara un banquete, pues estos hombres comerán conmigo al mediodía»*.
+
+**¹⁷** El mayordomo hizo todo lo que **José** le ordenó, y los llevó a la casa de **José**. **¹⁸** Pero ellos tuvieron miedo cuando los llevaron a la casa de **José**, pues pensaron: *«Nos trajeron aquí por el dinero que apareció en nuestras bolsas la vez pasada. Ahora nos atacarán, nos harán sus esclavos y se apoderarán de nuestros asnos»*.
+
+**¹⁹** Por eso, a la entrada de la casa, se acercaron al mayordomo de **José** **²⁰** y le dijeron:  
+—Discúlpenos, señor. Nosotros ya vinimos una vez a comprar alimento. **²¹** Pero a nuestro regreso, cuando acampamos para pasar la noche, cada uno de nosotros abrió su bolsa y, en la abertura, encontró la cantidad exacta de dinero que había pagado. *¡Por eso lo hemos traído de vuelta!* **²²** También hemos traído dinero adicional para comprar más alimento. *¡No sabemos quién puso el dinero en nuestras bolsas!*
+
+**²³** —*Está bien, no tengan miedo* —les respondió aquel hombre—. El **Dios** de ustedes, el **Dios** de su padre, fue quien puso ese tesoro en sus bolsas. A mí me consta que recibí el dinero que ustedes pagaron.
+
+Dicho esto, les llevó a **Simeón**. **²⁴** Luego los llevó adentro de la casa de **José** y les dio agua para que se lavaran los pies. También les dio forraje para sus asnos. **²⁵** Como los hermanos de **José** habían oído que iban a comer allí, prepararon los regalos para dárselos a **José** en cuanto él llegara al mediodía.
+
+**²⁶** Cuando **José** entró en su casa, le entregaron los regalos que le habían llevado, y rostro en tierra se postraron ante él. **²⁷** **José** les preguntó cómo estaban, y añadió:  
+—*¿Cómo está su padre, el anciano del cual me hablaron? ¿Vive todavía?*
+
+**²⁸** —Tu siervo, nuestro padre, se encuentra bien, y todavía vive —respondieron ellos.  
+Y en seguida le hicieron una reverencia para honrarlo.
+
+**²⁹** **José** miró a su alrededor y, al ver a su hermano **Benjamín**, el hijo de su madre, les preguntó:  
+—*¿Es este su hermano menor, del que me hablaron?*  
+Y añadió:  
+—Que **Dios** te guarde, hijo mío.
+
+**³⁰** Conmovido hasta las entrañas por la presencia de su hermano, **José** salió de prisa en busca de un lugar donde llorar. Entró en su habitación, y allí se puso a llorar desconsoladamente. **³¹** Después de lavarse la cara, volvió a salir y, dominándose, ordenó: *«¡Sirvan la comida!»*
+
+**³²** A **José** le sirvieron en un sector, a los hermanos de **José** en otro, y en otro más a los **egipcios** que comían con él, porque, por razones rituales, los **egipcios** no podían comer con los **hebreos**. **³³** Los hermanos de **José** estaban sentados frente a él, de mayor a menor, y unos a otros se miraban con asombro. **³⁴** Las porciones les eran servidas desde la mesa de **José**, pero a **Benjamín** se le servían porciones mucho más grandes que a los demás. En presencia de **José**, todos bebieron y se alegraron.
+
+---
+
+## Capítulo 44
+
+### La copa de José
+
+**¹** Más tarde, **José** ordenó al mayordomo de su casa: *«Llena con todo el alimento que les quepa los costales de estos hombres, y pon en sus bolsas el dinero de cada uno de ellos. ² Luego mete mi copa de plata en la bolsa del hermano menor, junto con el dinero que pagó por el alimento»*.
+
+Y el mayordomo hizo todo lo que **José** le ordenó.
+
+**³** A la mañana siguiente, muy temprano, los hermanos de **José** fueron enviados de vuelta, junto con sus asnos. **⁴** Todavía no se habían alejado mucho de la ciudad cuando **José** le dijo al mayordomo de su casa: *«¡Ve! ¡Persigue a esos hombres! Cuando los alcances, diles: "¿Por qué han pagado mal por bien? ⁵ ¿Por qué han robado la copa que usa mi señor para beber y para adivinar? ¡Esto que han hecho está muy mal!"»*
+
+**⁶** Cuando el mayordomo los alcanzó, les repitió esas mismas palabras. **⁷** Pero ellos respondieron:  
+—*¿Por qué nos dice usted tales cosas, mi señor?* *¡Lejos sea de nosotros actuar de esa manera!* **⁸** Es más, nosotros le hemos traído de vuelta desde **Canaán** el dinero que encontramos en nuestras bolsas. *¿Por qué, entonces, habríamos de robar oro o plata de la casa de su señor?* **⁹** Si se encuentra la copa en poder de alguno de nosotros, que muera el que la tenga, y nosotros seremos esclavos de mi señor.
+
+**¹⁰** —Está bien —respondió el mayordomo—, se hará tal como ustedes han dicho, solo que únicamente aquel que tenga la copa en su poder será mi esclavo; los demás quedarán libres de todo cargo.
+
+**¹¹** En seguida cada uno de ellos bajó su bolsa al suelo y la abrió. **¹²** El mayordomo revisó cada bolsa, comenzando con la del hermano mayor y terminando con la del menor. *¡Y encontró la copa en la bolsa de Benjamín!* **¹³** Al ver esto, los hermanos de **José** se rasgaron las vestiduras en señal de duelo y, luego de cargar sus asnos, volvieron a la ciudad.
+
+### Judá intercede por Benjamín
+
+**¹⁴** Todavía estaba **José** en su casa cuando llegaron **Judá** y sus hermanos. Entonces se postraron rostro en tierra, **¹⁵** y **José** les dijo:  
+—*¿Qué manera de portarse es esta? ¿Acaso no saben que un hombre como yo puede adivinar?*
+
+**¹⁶** —*¡Qué podemos decirle a mi señor!* —contestó **Judá**—. *¿Qué podemos alegar? ¿Cómo podemos demostrar nuestra inocencia?* **Dios ha puesto al descubierto la maldad de tus siervos. Aquí nos tienes: somos tus esclavos, nosotros y el que tenía la copa.**
+
+**¹⁷** —*¡Jamás podría yo actuar de ese modo!* —respondió **José**—. Solo será mi esclavo el que tenía la copa en su poder. En cuanto a ustedes, regresen tranquilos a la casa de su padre.
+
+> **¹⁸** Entonces **Judá** se acercó a **José** para decirle:  
+—**Mi señor, no se enoje usted conmigo si le hablo con franqueza. Para mí, usted es tan importante como el faraón.**
+
+**¹⁹** Cuando mi señor nos preguntó si todavía teníamos un padre o algún otro hermano, **²⁰** nosotros le contestamos que teníamos un padre anciano, y un hermano que le nació a nuestro padre cuando ya era viejo. Nuestro padre quiere muchísimo a este último porque es el único que le queda de la misma madre, pues el otro ya murió. **²¹** Entonces usted nos ordenó traerlo ante su presencia para conocerlo. **²²** Nosotros le dijimos a mi señor que el joven no podía dejar a su padre porque, si lo hacía, seguramente su padre moriría. **²³** Pero usted insistió en que, si nuestro hermano menor no venía con nosotros, no se nos permitiría volver a presentarnos ante usted. **²⁴** Entonces regresamos adonde vive su siervo, mi padre, y le informamos de todo lo que usted nos había dicho.
+
+**²⁵** »Tiempo después, nuestro padre nos dijo: "Vuelvan a comprar un poco de alimento". **²⁶** Nosotros le contestamos: "No podemos ir si nuestro hermano menor no va con nosotros. Solo si él nos acompaña podremos presentarnos ante aquel hombre". **²⁷** Mi padre nos recordó: "Ustedes saben que mi esposa me dio dos hijos. **²⁸** Uno de ellos me abandonó, y no he vuelto a verlo. Con toda seguridad fue despedazado por las fieras. **²⁹** Si también me quitan a este, y le pasa alguna desgracia, ¡ustedes tendrán la culpa de que yo me muera de tristeza!"
+
+**³⁰** »Ahora bien, ¿qué pasará si regreso a mi padre, su siervo, y el joven, cuya vida está tan unida a la de mi padre, no viene con nosotros? **³¹** Seguramente, al no ver al joven con nosotros, nuestro padre morirá, y nosotros seremos los culpables de que nuestro padre se muera de tristeza. **³²** Este siervo suyo quedó ante mi padre como garante del joven. Le dije: *"Si no te lo devuelvo, padre mío, seré culpable ante ti toda mi vida".*
+
+> **³³** **Por eso, permita usted que yo me quede como su esclavo en lugar de mi hermano menor, y que él regrese con sus hermanos. ³⁴ ¿Cómo podré volver junto a mi padre si mi hermano menor no está conmigo? ¡No soy capaz de ver la desgracia que le sobrevendría a mi padre!**
+
+---
+
+## Capítulo 45
+
+### José se da a conocer a sus hermanos
+
+**¹** **José** ya no pudo contenerse delante de todos sus servidores, así que ordenó: *«¡Que salgan todos de mi presencia!»* Y ninguno de ellos quedó con él. Fue así como **José** se dio a conocer a sus hermanos. **²** Pero se echó a llorar tan fuerte que los **egipcios** se enteraron, y la noticia llegó hasta la casa del **faraón**.
+
+> **³** —**Yo soy José** —les declaró a sus hermanos—. **¿Vive todavía mi padre?**
+
+Pero ellos estaban tan pasmados que no atinaban a contestarle.
+
+**⁴** No obstante, **José** insistió:  
+—*¡Acérquense!*
+
+Cuando ellos se acercaron, él añadió:  
+—**Yo soy José, el hermano de ustedes, aquel que vendieron a Egipto. ⁵ Pero ahora, por favor no se aflijan más ni se reprochen el haberme vendido, pues en realidad fue Dios quien me mandó delante de ustedes para salvar vidas.**
+
+**⁶** Durante estos dos años ha habido hambre en esta región, y todavía faltan cinco años más en que no habrá siembras ni cosechas. **⁷** Por eso **Dios** me envió delante de ustedes: para salvarles la vida de manera extraordinaria y de ese modo asegurarles descendencia sobre la tierra. **⁸** Fue **Dios** quien me envió aquí, y no ustedes. Él me ha puesto como asesor del **faraón** y administrador de su casa, y como gobernador de todo **Egipto**.
+
+**⁹** *¡Vamos! ¡Apúrense!* Vuelvan a donde está mi padre y díganle: "Así dice tu hijo **José**: '**Dios** me ha hecho gobernador de todo **Egipto**. Ven a verme. No te demores. **¹⁰** Vivirás en la región de **Gosén**, cerca de mí, con tus hijos y tus nietos, y con tus ovejas, vacas y todas tus posesiones. **¹¹** Yo te proveeré de alimento allí, porque aún quedan cinco años más de hambre. De lo contrario, tú y tu familia, y todo lo que te pertenece, caerán en la miseria'".
+
+**¹²** »Además, ustedes y mi hermano **Benjamín** son testigos de que yo mismo les estoy hablando. **¹³** Cuéntenle a mi padre del prestigio que tengo en **Egipto**, y de todo lo que han visto. *¡Pero apúrense y tráiganlo ya!*
+
+**¹⁴** Dicho esto, **José** se fundió en un abrazo con su hermano **Benjamín** y se puso a llorar. **Benjamín**, a su vez, también lloró abrazado a él. **¹⁵** Luego **José**, bañado en lágrimas, besó a todos sus hermanos. Solo entonces se animaron ellos a hablarle.
+
+### El faraón invita a Jacob
+
+**¹⁶** Cuando llegó al palacio del **faraón** la noticia de que habían llegado los hermanos de **José**, tanto el **faraón** como sus servidores se alegraron mucho. **¹⁷** Entonces el **faraón** le dijo a **José**:  
+—Diles a tus hermanos: "Carguen sus animales y vuelvan en seguida a la tierra de **Canaán**. **¹⁸** Traigan a su padre y a sus familias, y vengan a mí. Yo les daré lo mejor de la tierra de **Egipto**, y comerán de la abundancia del país".
+
+**¹⁹** »Ordénales también que se lleven de **Egipto** carretas para sus mujeres y sus hijos, y para traer a su padre. **²⁰** Que no se preocupen por las cosas que tengan que dejar, porque lo mejor de todo **Egipto** será de ustedes.
+
+**²¹** Así lo hicieron los hijos de **Israel**. **José** les proporcionó carretas, como lo había ordenado el **faraón**, y también les dio provisiones para el viaje. **²²** A cada uno de ellos les dio ropa nueva; pero a **Benjamín** le dio trescientas monedas de plata y cinco mudas de ropa. **²³** A su padre le envió lo siguiente: diez asnos cargados con lo mejor de **Egipto**, diez asnas cargadas de trigo, pan y provisiones para el viaje de su padre.
+
+**²⁴** Cuando ya sus hermanos estaban por irse, **José** les recomendó: *«¡No vayan a pelearse por el camino!»*
+
+**²⁵** Los hermanos de **José** salieron de **Egipto** y llegaron a **Canaán**, donde estaba su padre **Jacob**. **²⁶** Al llegar, le dijeron:  
+—*¡José vive, José vive!* Es más, ¡él es el gobernador de todo **Egipto**!
+
+**Jacob** quedó atónito y no les creía, **²⁷** pero cuando ellos le contaron todo lo que **José** les había dicho, y cuando vio las carretas que **José** había enviado para llevarlo, **Jacob** se reanimó. **²⁸** Entonces exclamó:  
+—*¡Con esto me basta!* **¡Mi hijo José aún vive! Iré a verlo antes de morirme.**
+
+---
+
+## Resumen de los Capítulos 42-45
+
+| **Tema Principal** | **Detalle Clave** | **Resultado** |
+|---|---|---|
+| **Primera visita a Egipto** | Los hermanos van a comprar alimento | **José** los reconoce pero ellos no lo reconocen a él |
+| **José prueba a sus hermanos** | **José** los acusa de ser espías y retiene a **Simeón** | Los hermanos recuerdan su culpa: *"Estamos sufriendo las consecuencias"* |
+| **El dilema de Jacob** | **Jacob** no quiere enviar a **Benjamín** | **Judá** se ofrece como garante de **Benjamín** |
+| **Segunda visita a Egipto** | Los hermanos regresan con **Benjamín** | **José** prepara un banquete; se emociona al ver a **Benjamín** |
+| **La prueba de la copa** | **José** pone su copa en la bolsa de **Benjamín** | Los hermanos son acusados de robo |
+| **La intercesión de Judá** | **Judá** ofrece quedarse como esclavo en lugar de **Benjamín** | **Judá** muestra verdadero arrepentimiento y amor sacrificial |
+| **José revela su identidad** | **José** ya no puede contenerse y revela quién es | **José** perdona a sus hermanos y reconoce la soberanía de **Dios** |
+| **La providencia de Dios** | **José** explica: *"Dios me envió para salvar vidas"* | La familia será reunida y preservada |
+| **El faraón invita a Jacob** | **Faraón** ofrece lo mejor de **Egipto** a la familia de **José** | **Jacob** se prepara para ir a **Egipto** |
+
+---
+
+## Versículos Clave para Memorizar
+
+> **Génesis 42:21-22** — Entonces se dijeron unos a otros: *"Sin duda estamos sufriendo las consecuencias de lo que hicimos con nuestro hermano."* **Rubén** les reclamó: **"¿No les advertí que no le hicieran daño al muchacho? ¡Pero ustedes no me hicieron caso! Ahora tenemos que pagar el precio de su sangre."**
+
+> **Génesis 44:33-34** — **Por eso, permita usted que yo me quede como su esclavo en lugar de mi hermano menor, y que él regrese con sus hermanos. ¿Cómo podré volver junto a mi padre si mi hermano menor no está conmigo? ¡No soy capaz de ver la desgracia que le sobrevendría a mi padre!**
+
+> **Génesis 45:5** — **Pero ahora, por favor no se aflijan más ni se reprochen el haberme vendido, pues en realidad fue Dios quien me mandó delante de ustedes para salvar vidas.**
+
+> **Génesis 45:7-8** — **Por eso Dios me envió delante de ustedes:
+
+# El Libro de Génesis
+
+---
+
+## Capítulo 46
+
+### Jacob viaja a Egipto
+
+**Israel** emprendió el viaje con todas sus posesiones. Al llegar a **Berseba**, ofreció sacrificios al **Dios** de su padre **Isaac**. Esa noche **Dios** le habló en una visión:
+
+—**¡Jacob! ¡Jacob!**
+
+—Aquí estoy —respondió él.
+
+> **3** —Yo soy **Dios**, el **Dios** de tu padre —le dijo—. *No temas ir a Egipto*, porque allí haré de ti una gran nación. **4** Yo te acompañaré a **Egipto**, y yo mismo te haré volver. Además, cuando mueras, **José** cerrará tus ojos.
+
+**Jacob** salió de **Berseba**, y los hijos de **Israel** hicieron que su padre, sus hijos y sus mujeres subieran en los carros que el **faraón** había enviado para transportarlos. También se llevaron el ganado y las posesiones que habían adquirido en **Canaán**. Fue así como **Jacob** viajó a **Egipto** con toda su descendencia: sus hijos y sus nietos, sus hijas y sus nietas. *Toda su descendencia lo acompañó.*
+
+### Los descendientes de Jacob
+
+Estos son los nombres de los israelitas que fueron a **Egipto**, es decir, **Jacob** y sus descendientes:
+
+**Rubén**, el primogénito de **Jacob**.
+
+**Los hijos de Rubén:**
+* **Janoc**
+* **Falú**
+* **Jezrón**
+* **Carmí**
+
+**Los hijos de Simeón:**
+* **Jemuel**
+* **Jamín**
+* **Ohad**
+* **Jaquín**
+* **Zojar**
+* **Saúl** (hijo de una mujer cananea)
+
+**Los hijos de Leví:**
+* **Guersón**
+* **Coat**
+* **Merarí**
+
+**Los hijos de Judá:**
+* **Er**
+* **Onán**
+* **Sela**
+* **Fares**
+* **Zera**
+
+(**Er** y **Onán** murieron en **Canaán**.)
+
+**Los hijos de Fares:**
+* **Jezrón**
+* **Jamul**
+
+**Los hijos de Isacar:**
+* **Tola**
+* **Fuva**
+* **Jasub**
+* **Simrón**
+
+**Los hijos de Zabulón:**
+* **Séred**
+* **Elón**
+* **Yalel**
+
+Estos fueron los hijos que **Lea** le dio a **Jacob** en **Padán Aram**, además de su hija **Dina**. En total, entre hombres y mujeres eran treinta y tres personas.
+
+**Los hijos de Gad:**
+* **Zefón**
+* **Jaguí**
+* **Esbón**
+* **Erí**
+* **Arodí**
+* **Arelí**
+
+**Los hijos de Aser:**
+* **Imna**
+* **Isvá**
+* **Isví**
+* **Beriá**
+* **Sera** (su hermana)
+
+**Los hijos de Beriá:**
+* **Jéber**
+* **Malquiel**
+
+Estos fueron los descendientes de **Zilpá**, la esclava que **Labán** le había regalado a su hija **Lea**. El total de sus descendientes fue de dieciséis personas.
+
+**Los hijos de Raquel**, la esposa de **Jacob:**
+* **José**
+* **Benjamín**
+
+En **Egipto**, **Asenat** hija de **Potifera**, sacerdote de **On**, le dio a **José** dos hijos: **Manasés** y **Efraín**.
+
+**Los hijos de Benjamín:**
+* **Bela**
+* **Béquer**
+* **Asbel**
+* **Guerá**
+* **Naamán**
+* **Ehí**
+* **Ros**
+* **Mupín**
+* **Jupín**
+* **Ard**
+
+Estos fueron los hijos que **Raquel** le dio a **Jacob**, catorce personas en total.
+
+**Los hijos de Dan:**
+* **Jusín**
+
+**Los hijos de Neftalí:**
+* **Jasiel**
+* **Guní**
+* **Jéser**
+* **Silén**
+
+Estos fueron los descendientes de **Bilhá**, la esclava que **Labán** le había regalado a su hija **Raquel**. El total fue de siete personas.
+
+Todas las personas que llegaron con **Jacob** a **Egipto**, y que eran de su misma sangre, fueron sesenta y seis, sin contar a las nueras. **José** tenía dos hijos que le nacieron en **Egipto**. En total, los familiares de **Jacob** que fueron a **Egipto** fueron setenta.
+
+### Jacob se establece en Gosén
+
+**Jacob** envió a **Judá** para que se adelantara y le preguntara a **José** cómo llegar a **Gosén**. Cuando llegaron a esa región, **José** hizo que prepararan su carruaje y salió hacia **Gosén** para recibir a su padre **Israel**. Cuando se encontraron, **José** se fundió con su padre en un abrazo, y durante un largo rato *lloró sobre su hombro*.
+
+Entonces **Israel** le dijo a **José**:
+
+—*¡Ya me puedo morir!* ¡Te he visto y aún estás con vida!
+
+**José** les dijo a sus hermanos y a la familia de su padre:
+
+> **31** —Voy a informarle al **faraón** que ustedes han venido desde **Canaán** para quedarse conmigo, **32** y que son *pastores de ovejas* y se dedican a criar ganado. Le diré también que han traído sus ovejas y su ganado, y todo cuanto tenían. **33** Cuando el **faraón** los llame y les pregunte a qué se dedican, **34** ustedes deben responderle: *«Nosotros, sus siervos, nos hemos dedicado a criar ganado desde nuestra niñez, al igual que nuestros antepasados.»* De este modo podrán establecerse en la región de **Gosén**, pues *los egipcios detestan el oficio de pastor*.
+
+---
+
+## Capítulo 47
+
+### Jacob y sus hijos se establecen en Gosén
+
+**José** fue a informarle al **faraón**, y le dijo:
+
+—Mi padre y mis hermanos han venido desde **Canaán** con sus ovejas y su ganado, y con todo lo que les pertenece. Ya se encuentran en la región de **Gosén**.
+
+Además, tomó a cinco de sus hermanos y se los presentó al **faraón**. El **faraón** les preguntó:
+
+—¿En qué trabajan ustedes?
+
+—Nosotros, sus siervos, somos *pastores*, al igual que nuestros antepasados —respondieron ellos al **faraón**—. Hemos venido a vivir en este país porque en **Canaán** ya no hay pastos para nuestros rebaños. *¡El hambre aprieta con fuerza en esa región!* Por eso le rogamos a Su Majestad que nos permita vivir en la región de **Gosén**.
+
+Entonces el **faraón** le dijo a **José**:
+
+—Tu padre y tus hermanos han venido a vivir contigo. La tierra de **Egipto** está a tu disposición. Haz que se establezcan en **Gosén**, que es la mejor región. Y si sabes que hay entre ellos *hombres capaces*, ponlos a cargo de mi propio ganado.
+
+Luego **José** llevó a su padre **Jacob** y se lo presentó al **faraón**. **Jacob** saludó al **faraón** con reverencia, y el **faraón** le preguntó:
+
+—¿Cuántos años tienes?
+
+—Ya tengo ciento treinta años —respondió **Jacob**—. Mis años de andar peregrinando de un lado a otro han sido pocos y difíciles, *pero no se comparan con los de mis antepasados*.
+
+**Jacob** se despidió del **faraón** con una reverencia y se retiró de su presencia.
+
+**José** instaló a su padre y a sus hermanos, y les entregó terrenos en la mejor región de **Egipto**, es decir, en el distrito de **Ramsés**, tal como lo había ordenado el **faraón**. **José** proveyó de alimentos a su padre y a sus hermanos, y a todos sus familiares, según las necesidades de cada familia.
+
+### La administración de José durante el hambre
+
+El hambre seguía empeorando, y no había alimento en ninguna parte, de modo que tanto **Egipto** como **Canaán** se vieron gravemente afectados. **José** recogió todo el dinero que había en **Egipto** y en **Canaán** a cambio del alimento que la gente compraba, y lo depositó en el palacio del **faraón**. Cuando se les acabó el dinero a los egipcios y a los cananeos, todos los egipcios fueron a pedirle alimento a **José**.
+
+—¡Danos de comer! —clamaban—. *¿Vamos a morirnos de hambre ante tus propios ojos?* ¡Ya no tenemos más dinero!
+
+—Si ya se les acabó el dinero —les contestó **José**—, traigan su ganado y yo les daré alimento a cambio de sus animales.
+
+Los egipcios llevaron a **José** su ganado, es decir, sus caballos, vacas, ovejas y asnos, y a cambio de ellos **José** les dio alimento durante todo ese año. Al año siguiente fueron a decirle:
+
+—No podemos ocultarle a nuestro señor que ya no tenemos más dinero, y que nuestro ganado ya es suyo. Ya no tenemos nada que darle, excepto nuestros cuerpos y nuestras tierras. *¿Vamos a morirnos ante tus propios ojos?* ¡Cómpranos a nosotros y a nuestras tierras, a cambio de alimento! Seremos esclavos del **faraón**, junto con nuestras tierras. *¡Danos semilla para sembrar y conservar la vida!* ¡No dejes que muera la tierra ni que nosotros muramos!
+
+De esta manera **José** adquirió para el **faraón** todas las tierras de **Egipto**, porque los egipcios, obligados por el hambre, le vendieron todos sus terrenos. Fue así como todo el país llegó a ser propiedad del **faraón**, y todos en **Egipto** quedaron reducidos a la esclavitud. Las únicas tierras que **José** no compró fueron las que pertenecían a los sacerdotes. Estos no tuvieron que vender sus tierras porque recibían una ración de alimento de parte del **faraón**.
+
+> **23** Entonces **José** le informó al pueblo: —**Desde hoy ustedes y sus tierras pertenecen al faraón**, porque los he comprado. Ahí tienen semilla. Siembren la tierra, **24** y cuando llegue la cosecha, deberán entregarle al **faraón** la quinta parte de lo cosechado. Las otras cuatro partes serán para la siembra de los campos, y para alimentarlos a ustedes, a sus hijos y a sus familiares.
+
+—*¡Usted nos ha salvado la vida!* —respondieron ellos—. Hemos contado con su favor. ¡Seremos esclavos del **faraón**!
+
+**José** estableció esta ley en toda la tierra de **Egipto**, que hasta el día de hoy sigue vigente: la quinta parte de la cosecha le pertenece al **faraón**. Solo las tierras de los sacerdotes no llegaron a ser del **faraón**.
+
+### Últimos días de Jacob
+
+Los israelitas se asentaron en **Egipto**, en la región de **Gosén**. Allí adquirieron propiedades, prosperaron y llegaron a ser muy numerosos.
+
+**Jacob** residió diecisiete años en **Egipto**, de modo que alcanzó la edad de ciento cuarenta y siete años. Cuando **Israel** estaba a punto de morir, mandó llamar a su hijo **José** y le dijo:
+
+—Si de veras me quieres, pon tu mano debajo de mi muslo y prométeme **amor y lealtad**. *¡Por favor, no me entierres en Egipto!* Cuando vaya a descansar junto a mis antepasados, *sácame de Egipto* y entiérrame en el sepulcro de ellos.
+
+—Haré lo que me pides —le contestó **José**.
+
+—¡Júramelo! —insistió su padre.
+
+**José** se lo juró, e **Israel** se reclinó sobre la cabecera de la cama.
+
+---
+
+## Capítulo 48
+
+### Manasés y Efraín
+
+Poco tiempo después le informaron a **José** que su padre estaba enfermo. Entonces **José** fue a verlo en compañía de sus dos hijos, **Manasés** y **Efraín**. Cuando le avisaron a **Jacob** que su hijo **José** había ido a verlo, *hizo un esfuerzo* y se sentó en la cama.
+
+**Jacob** le dijo a **José**:
+
+—**El Dios Todopoderoso** se me apareció en **Luz**, en la tierra de **Canaán**, y me bendijo con esta promesa: «Te haré fecundo, te multiplicaré, y haré que tu descendencia forme una comunidad de naciones. Además, a tu descendencia le daré esta tierra como su posesión perpetua.»
+
+—Ahora bien, los dos hijos que te nacieron aquí en **Egipto**, antes de que me reuniera contigo, serán considerados míos. **Efraín** y **Manasés** serán tan míos como lo son **Rubén** y **Simeón**. Los hijos que tengas después de ellos serán tuyos, y a través de sus hermanos recibirán su heredad. Cuando yo regresaba de **Padán**, para gran pena mía, tu madre **Raquel** murió en **Canaán**, cuando todavía estábamos en camino, a corta distancia de **Efrata**. Allí, a un lado del camino que va hacia **Efrata**, es decir, **Belén**, le di sepultura.
+
+Al darse cuenta **Israel** de que **José** tenía dos hijos a su lado, le preguntó:
+
+—¿Quiénes son estos jóvenes?
+
+—Son los hijos que **Dios** me ha concedido aquí —le respondió **José** a su padre.
+
+Entonces **Israel** le dijo:
+
+—Acércalos, por favor, para que les dé mi **bendición**.
+
+**Israel** ya casi no podía ver, pues la vejez le había nublado la vista. **José** acercó a sus hijos a su padre, y él los besó y abrazó. Luego **Israel** le dijo a **José**:
+
+—*Ya había perdido la esperanza de volver a verte*, pero ahora **Dios** me ha concedido ver también a tus hijos.
+
+**José** los apartó de las rodillas de **Israel** y se postró rostro en tierra. Luego tomó a sus dos hijos, a **Efraín** con la derecha y a **Manasés** con la izquierda, y los acercó a **Israel**. De modo que **Efraín** quedó a la izquierda de **Israel**, y **Manasés** a su derecha. Pero **Israel**, al extender las manos, las cruzó adrede; puso su mano derecha sobre la cabeza de **Efraín**, aunque era el menor, y la izquierda sobre la cabeza de **Manasés**, a pesar de que **Manasés** era el primogénito.
+
+> **15** Entonces **Jacob** bendijo a **José** con estas palabras: *«Que el **Dios** en cuya presencia caminaron mis padres, **Abraham** e **Isaac**, el **Dios** que me ha guiado durante toda mi vida hasta este día, **16** el ángel que me ha rescatado de todo mal, **bendiga** a estos jóvenes. Que por medio de ellos sea recordado mi nombre y el de mis padres, **Abraham** e **Isaac**. Que crezcan y se multipliquen sobre la tierra.»*
+
+A **José** no le agradó ver que su padre pusiera su mano derecha sobre la cabeza de **Efraín**, así que tomándola, trató de pasarla de la cabeza de **Efraín** a la de **Manasés**, mientras le reclamaba:
+
+—¡Así no, padre mío! ¡Este es el primogénito! Pon tu mano derecha sobre su cabeza.
+
+Pero su padre se resistió, y le contestó:
+
+—*¡Ya lo sé, hijo, ya lo sé!* También él gestará un pueblo, y llegará a ser importante. Pero su hermano menor será aún más importante, y su descendencia dará origen a muchas naciones.
+
+Aquel día **Jacob** los bendijo con estas palabras:
+
+*«Tu nombre será usado en **Israel** como una **bendición**: "¡Que **Dios** te haga como **Efraín** y **Manasés**!"»*
+
+De este modo **Israel** puso a **Efraín** antes que a **Manasés**.
+
+Finalmente, **Israel** le dijo a **José**:
+
+—Yo estoy a punto de morir; pero **Dios** estará con ustedes y los hará volver a la tierra de sus antepasados. A ti, que estás por encima de tus hermanos, te doy **Siquén**, tierra que arrebaté a los amorreos con mi espada y con mi arco.
+
+---
+
+## Capítulo 49
+
+### Jacob bendice a sus hijos
+
+**Jacob** llamó a sus hijos y les dijo: «Reúnanse, que voy a declararles lo que les va a suceder en el futuro:
+
+**2** *«Hijos de Jacob: acérquense y escuchen;
+    presten atención a su padre **Israel**.*
+
+### Rubén
+
+**3** **Rubén**, tú eres mi primogénito,
+    primer fruto de mi fuerza y virilidad,
+    primero en honor y en poder.
+**4** Impetuoso como un torrente,
+    *ya no serás el primero*:
+te acostaste en mi cama;
+    *profanaste la cama de tu propio padre.*
+
+### Simeón y Leví
+
+**5** **Simeón** y **Leví** son chacales;
+    *sus espadas son instrumentos de violencia*.
+**6** ¡Que yo no participe de sus reuniones,
+    ni me una a sus asambleas!
+Porque en su enojo mataron hombres,
+    y por capricho mutilaron toros.
+**7** *Malditas sean* su ira, por ser tan violenta,
+    y su furor, por ser tan cruel.
+Los dispersaré en el país de **Jacob**,
+    los desparramaré en el país de **Israel**.
+
+### Judá
+
+> **8** **Judá**, tus hermanos te alabarán;
+    dominarás a tus enemigos,
+    y tus propios hermanos se inclinarán ante ti.
+**9** Mi hijo **Judá** es como un cachorro de león
+    que se ha nutrido de la presa.
+Se tiende al acecho como león,
+    como leona que nadie se atreve a molestar.
+**10** *El cetro no se apartará de **Judá**,
+    ni de entre sus pies el bastón de mando,*
+hasta que venga el verdadero rey,
+    quien merece la obediencia de los pueblos.
+
+**11** **Judá** amarra su asno a la vid,
+    y la cría de su asno a la mejor cepa;
+lava su ropa en vino;
+    su manto, en la sangre de las uvas.
+**12** Sus ojos son más oscuros que el vino;
+    sus dientes, más blancos que la leche.
+
+### Zabulón
+
+**13** **Zabulón** vivirá a la orilla del mar;
+    será puerto seguro para las naves,
+    y su frontera se extenderá hacia **Sidón**.
+
+### Isacar
+
+**14** **Isacar** es un asno fuerte
+    echado entre los apriscos.
+**15** Al ver que el lugar donde descansa es bueno,
+    y que la tierra es agradable,
+agachará la espalda para cargar el bulto
+    y se someterá a la esclavitud.
+
+### Dan
+
+**16** **Dan** hará *justicia* en favor de su pueblo,
+    como una de las tribus de **Israel**.
+**17** **Dan** es una serpiente junto al camino,
+    una víbora junto al sendero,
+que muerde los jarretes del caballo
+    y hace caer de espaldas al jinete.
+
+**18** *¡**SEÑOR**, espero tu **salvación**!*
+
+### Gad
+
+**19** **Gad** será atacado por bandas armadas,
+    pero él atacará su retaguardia.
+
+### Aser
+
+**20** **Aser** disfrutará de comidas deliciosas;
+    ofrecerá manjares dignos de reyes.
+
+### Neftalí
+
+**21** **Neftalí** es una gacela libre,
+    que tiene hermosos cervatillos.
+
+### José
+
+**22** **José** es un retoño fecundo,
+    un retoño fecundo junto al agua,
+    cuyas ramas trepan por el muro.
+**23** Los arqueros lo atacaron sin piedad;
+    le tiraron flechas, lo hostigaron.
+**24** Pero su arco se mantuvo firme,
+    porque sus brazos son fuertes.
+*¡Gracias al **Dios fuerte de Jacob**,*
+    al **Pastor**, a la **Roca de Israel**!
+**25** ¡Gracias al **Dios** de tu padre, que te ayuda!
+    ¡Gracias al **Todopoderoso**, que te **bendice**!
+¡Con bendiciones de lo alto!
+    ¡Con bendiciones del abismo!
+¡Con bendiciones de los pechos y del seno materno!
+**26** Son mejores las bendiciones de tu padre
+    que las de los montes de antaño,
+    que la abundancia de las colinas eternas.
+*¡Que descansen estas bendiciones sobre la cabeza de **José**,
+    sobre la corona del mejor de sus hermanos!*
+
+### Benjamín
+
+**27** **Benjamín** es un lobo rapaz
+    que en la mañana devora la presa
+    y en la tarde reparte los despojos.»
+
+### Muerte de Jacob
+
+Estas son las doce tribus de **Israel**, y esto es lo que su padre les dijo cuando los bendijo a cada uno según la **bendición** que le correspondía.
+
+Además, **Jacob** les dio estas instrucciones:
+
+—*Ya estoy a punto de reunirme con los míos.* Entiérrenme junto a mis antepasados, en la cueva que está en el campo del hitita **Efrón**, es decir, en la cueva de **Macpela**, cerca de **Mamré**, en **Canaán**. **Abraham** le compró ese campo y esa cueva al hitita **Efrón**, para sepultura de su familia. Allí fueron sepultados **Abraham** y su esposa **Sara**, **Isaac** y su esposa **Rebeca**, y allí también enterré a **Lea**. Aquel campo y su cueva fueron comprados a los hititas.
+
+Cuando **Jacob** terminó de dar estas instrucciones a sus hijos, volvió a acostarse, *exhaló el último suspiro*, y fue a reunirse con sus antepasados.
+
+---
+
+## Capítulo 50
+
+### Duelo por Jacob
+
+**José** se abrazó al cuerpo de su padre, *lloró sobre él* y lo besó. Luego ordenó a los médicos que estaban a su servicio que embalsamaran el cuerpo, y así lo hicieron. El proceso duró cuarenta días, que es el tiempo requerido para embalsamar un cuerpo. Los egipcios, por su parte, guardaron luto por **Israel** durante setenta días.
+
+Pasado el tiempo de duelo, **José** le dijo a la corte del **faraón**:
+
+—Si he hallado gracia ante ustedes, les ruego que le comuniquen al **faraón** lo siguiente: «Mi padre me hizo jurar: "Voy a morir. Entiérrame en la tumba que cavé para mí en **Canaán**." Yo quisiera ir a enterrar a mi padre, y volver después.»
+
+El **faraón** le respondió:
+
+—Ve a enterrar a tu padre, como te lo hiciste jurar.
+
+**José** fue a enterrar a su padre. Con él fueron todos los ministros del **faraón**, y los ancianos de su corte y de **Egipto**, así como la familia de **José**, sus hermanos y la familia de su padre. Solo los niños y los rebaños se quedaron en **Gosén**. También lo acompañaron carros de combate y jinetes, *formando un cortejo muy grande*.
+
+Cuando llegaron a la era de **Atad**, que está cerca del **Jordán**, hicieron grandes y solemnes lamentaciones. Allí **José** guardó siete días de duelo por su padre. Al ver los cananeos que habitaban en esa región aquel duelo tan grande en la era de **Atad**, dijeron: «Los egipcios están de duelo.» Por eso llamaron a ese lugar, que está cerca del **Jordán**, **Abel Mizrayin**.
+
+Los hijos de **Jacob** hicieron con su padre lo que él les había pedido: lo llevaron a **Canaán** y lo sepultaron en la cueva del campo de **Macpela**, frente a **Mamré**, es decir, en el campo que **Abraham** le había comprado al hitita **Efrón**, como propiedad para sepultura. Luego de haber sepultado a su padre, **José** volvió a **Egipto**, junto con sus hermanos y con todos los que lo habían acompañado al funeral.
+
+### Promesa de José a sus hermanos
+
+Al reflexionar sobre la muerte de su padre, los hermanos de **José** se dijeron: «Tal vez **José** nos guarde rencor, y ahora quiera vengarse de todo el mal que le hicimos.» Por eso mandaron a decirle:
+
+—Antes de morir tu padre, dejó estas instrucciones: «Díganle a **José** que perdone, por favor, la terrible maldad que sus hermanos cometieron contra él.» Así que, por favor, perdona la maldad de los siervos del **Dios** de tu padre.
+
+Cuando **José** escuchó estas palabras, se echó a llorar. Luego sus hermanos se presentaron ante él, se postraron delante de él y le dijeron:
+
+—*¡Aquí nos tienes; somos tus esclavos!*
+
+> **19** —*No tengan miedo* —les contestó **José**—. ¿Puedo acaso tomar el lugar de **Dios**? **20** Es verdad que ustedes pensaron hacerme mal, **pero Dios transformó ese mal en bien para lograr lo que hoy estamos viendo: salvar la vida de mucha gente.** **21** Así que, *¡no tengan miedo!* Yo cuidaré de ustedes y de sus hijos.
+
+Y así, con el corazón en la mano, **José** los reconfortó.
+
+### Muerte de José
+
+**José** y la familia de su padre permanecieron en **Egipto**. **José** vivió ciento diez años, y alcanzó a ver nacer a sus bisnietos, tanto de **Efraín** como de **Maquir** hijo de **Manasés**, a los cuales recibió como si fueran sus propios hijos.
+
+Tiempo después **José** les dijo a sus hermanos:
+
+> **24** —*Yo estoy por morir*, pero sin duda **Dios** vendrá a ayudarlos, y los llevará de este país a la tierra que prometió a **Abraham**, **Isaac** y **Jacob**.
+
+Entonces **José** hizo que sus hermanos le hicieran este juramento:
+
+—Cuando **Dios** venga a ayudarlos, ustedes deberán llevarse de aquí mis huesos.
+
+**José** murió en **Egipto** a los ciento diez años de edad. Una vez que embalsamaron su cuerpo, lo pusieron en un ataúd.
+
