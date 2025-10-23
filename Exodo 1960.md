@@ -193,3 +193,343 @@
 | **Llamamiento de Moisés** | **Dios** llama a **Moisés** desde la **zarza ardiente** y le revela su nombre: **YO SOY EL QUE SOY**. |
 | **Objeciones y Señales** | **Moisés** expresa sus dudas, pero **Dios** le da señales milagrosas y le asigna a **Aarón** como portavoz. |
 | **Primera Confrontación** | **Moisés** y **Aarón** confrontan a **Faraón**, quien endurece su corazón y aumenta la opresión sobre **Israel**. |
+
+
+## Capítulo 6
+
+### Dios renueva su pacto con Israel
+
+**1** **Jehová** respondió a **Moisés**: Ahora verás lo que yo haré a **Faraón**; porque con mano fuerte los dejará ir, y con mano fuerte los echará de su tierra.
+
+**2** Habló todavía **Dios** a **Moisés**, y le dijo: Yo soy **JEHOVÁ**. **3** Y aparecí a **Abraham**, a **Isaac** y a **Jacob** como ***Dios Omnipotente***, mas en mi nombre **JEHOVÁ** no me di a conocer a ellos. **4** Y también establecí mi **pacto** con ellos, de darles la tierra de **Canaán**, la tierra en que fueron forasteros, y en la cual habitaron.
+
+**5** Asimismo yo he oído el gemido de los hijos de **Israel**, a quienes hacen servir los **egipcios**, y me he acordado de mi **pacto**. **6** Por tanto, dirás a los hijos de **Israel**: 
+
+> **Yo soy JEHOVÁ; y yo os sacaré de debajo de las tareas pesadas de Egipto, y os libraré de su servidumbre, y os redimiré con brazo extendido, y con juicios grandes;**
+
+**7** y os tomaré por mi pueblo y seré vuestro **Dios**; y vosotros sabréis que yo soy **Jehová** vuestro **Dios**, que os sacó de debajo de las tareas pesadas de **Egipto**. **8** Y os meteré en la tierra por la cual alcé mi mano jurando que la daría a **Abraham**, a **Isaac** y a **Jacob**; y yo os la daré por heredad. Yo **JEHOVÁ**.
+
+**9** De esta manera habló **Moisés** a los hijos de **Israel**; pero ellos no escuchaban a **Moisés** a causa de la congoja de espíritu, y de la dura servidumbre.
+
+**10** Y habló **Jehová** a **Moisés**, diciendo: **11** Entra y habla a **Faraón** rey de **Egipto**, que deje ir de su tierra a los hijos de **Israel**. **12** Y respondió **Moisés** delante de **Jehová**: He aquí, los hijos de **Israel** no me escuchan; ¿cómo, pues, me escuchará **Faraón**, mayormente siendo yo *torpe de labios*?
+
+**13** Entonces **Jehová** habló a **Moisés** y a **Aarón**, y les dio mandamiento para los hijos de **Israel**, y para **Faraón** rey de **Egipto**, para que sacasen a los hijos de **Israel** de la tierra de **Egipto**.
+
+---
+
+### Genealogía de Moisés y Aarón
+
+**14** Estos son los jefes de las familias de sus padres: Los hijos de **Rubén**, primogénito de **Israel**: 
+* **Hanoc**
+* **Falú**
+* **Hezrón**
+* **Carmi**
+
+Estas son las familias de **Rubén**.
+
+**15** Los hijos de **Simeón**: 
+* **Jemuel**
+* **Jamín**
+* **Ohad**
+* **Jaquín**
+* **Zohar**
+* **Saúl**, hijo de una mujer cananea
+
+Estas son las familias de **Simeón**.
+
+**16** Estos son los nombres de los hijos de **Leví** por sus linajes: 
+* **Gersón**
+* **Coat**
+* **Merari**
+
+Y los años de la vida de **Leví** fueron ciento treinta y siete años.
+
+**17** Los hijos de **Gersón**: 
+* **Libni**
+* **Simei**, por sus familias
+
+**18** Y los hijos de **Coat**: 
+* **Amram**
+* **Izhar**
+* **Hebrón**
+* **Uziel**
+
+Y los años de la vida de **Coat** fueron ciento treinta y tres años.
+
+**19** Y los hijos de **Merari**: 
+* **Mahli**
+* **Musi**
+
+Estas son las familias de **Leví** por sus linajes.
+
+**20** Y **Amram** tomó por mujer a **Jocabed** su tía, la cual dio a luz a **Aarón** y a **Moisés**. Y los años de la vida de **Amram** fueron ciento treinta y siete años.
+
+**21** Los hijos de **Izhar**: 
+* **Coré**
+* **Nefeg**
+* **Zicri**
+
+**22** Y los hijos de **Uziel**: 
+* **Misael**
+* **Elzafán**
+* **Sitri**
+
+**23** Y tomó **Aarón** por mujer a **Elisabet** hija de **Aminadab**, hermana de **Naasón**; la cual dio a luz a:
+* **Nadab**
+* **Abiú**
+* **Eleazar**
+* **Itamar**
+
+**24** Los hijos de **Coré**: 
+* **Asir**
+* **Elcana**
+* **Abiasaf**
+
+Estas son las familias de los coreítas.
+
+**25** Y **Eleazar** hijo de **Aarón** tomó para sí mujer de las hijas de **Futiel**, la cual dio a luz a **Finees**. Y estos son los jefes de los padres de los levitas por sus familias.
+
+**26** Este es aquel **Aarón** y aquel **Moisés**, a los cuales **Jehová** dijo: *Sacad a los hijos de **Israel** de la tierra de **Egipto** por sus ejércitos*. **27** Estos son los que hablaron a **Faraón** rey de **Egipto**, para sacar de **Egipto** a los hijos de **Israel**. **Moisés** y **Aarón** fueron estos.
+
+---
+
+### Aarón, portavoz de Moisés
+
+**28** Cuando **Jehová** habló a **Moisés** en la tierra de **Egipto**, **29** entonces **Jehová** habló a **Moisés**, diciendo: Yo soy **JEHOVÁ**; di a **Faraón** rey de **Egipto** todas las cosas que yo te digo a ti. **30** Y **Moisés** respondió delante de **Jehová**: He aquí, yo soy *torpe de labios*; ¿cómo, pues, me ha de oír **Faraón**?
+
+---
+
+## Capítulo 7
+
+**1** **Jehová** dijo a **Moisés**: Mira, yo te he constituido ***dios para Faraón***, y tu hermano **Aarón** será tu profeta. **2** Tú dirás todas las cosas que yo te mande, y **Aarón** tu hermano hablará a **Faraón**, para que deje ir de su tierra a los hijos de **Israel**. 
+
+**3** Y yo endureceré el corazón de **Faraón**, y multiplicaré en la tierra de **Egipto** mis señales y mis maravillas. **4** Y **Faraón** no os oirá; mas yo pondré mi mano sobre **Egipto**, y sacaré a mis ejércitos, mi pueblo, los hijos de **Israel**, de la tierra de **Egipto**, con grandes juicios. 
+
+> **5** **Y sabrán los egipcios que yo soy JEHOVÁ, cuando extienda mi mano sobre Egipto, y saque a los hijos de Israel de en medio de ellos.**
+
+**6** E hizo **Moisés** y **Aarón** como **Jehová** les mandó; así lo hicieron. **7** Era **Moisés** de edad de ochenta años, y **Aarón** de edad de ochenta y tres, cuando hablaron a **Faraón**.
+
+---
+
+### La vara de Aarón se convierte en serpiente
+
+**8** Habló **Jehová** a **Moisés** y a **Aarón**, diciendo: **9** Si **Faraón** os respondiere diciendo: *Mostrad milagro*; dirás a **Aarón**: Toma tu vara, y échala delante de **Faraón**, para que se haga culebra. **10** Vinieron, pues, **Moisés** y **Aarón** a **Faraón**, e hicieron como **Jehová** lo había mandado. Y echó **Aarón** su vara delante de **Faraón** y de sus siervos, y se hizo culebra.
+
+**11** Entonces llamó también **Faraón** sabios y hechiceros, e hicieron también lo mismo los hechiceros de **Egipto** con sus encantamientos; **12** pues echó cada uno su vara, las cuales se volvieron culebras; mas la vara de **Aarón** devoró las varas de ellos.
+
+**13** Y el corazón de **Faraón** se endureció, y no los escuchó, como **Jehová** lo había dicho.
+
+---
+
+### Primera plaga: El agua se convierte en sangre
+
+**14** Entonces **Jehová** dijo a **Moisés**: El corazón de **Faraón** está endurecido, y no quiere dejar ir al pueblo. **15** Ve por la mañana a **Faraón**, he aquí que él sale al río; y tú ponte a la ribera delante de él, y toma en tu mano la vara que se volvió culebra, **16** y dile: 
+
+> **JEHOVÁ el Dios de los hebreos me ha enviado a ti, diciendo: Deja ir a mi pueblo, para que me sirva en el desierto; y he aquí que hasta ahora no has querido oír.**
+
+**17** Así ha dicho **Jehová**: En esto conocerás que yo soy **Jehová**: he aquí, yo golpearé con la vara que tengo en mi mano el agua que está en el río, y se convertirá en **sangre**. **18** Y los peces que hay en el río morirán, y hederá el río, y los **egipcios** tendrán asco de beber el agua del río.
+
+**19** Y **Jehová** dijo a **Moisés**: Di a **Aarón**: Toma tu vara, y extiende tu mano sobre las aguas de **Egipto**, sobre sus ríos, sobre sus arroyos y sobre sus estanques, y sobre todos sus depósitos de aguas, para que se conviertan en **sangre**, y haya **sangre** por toda la región de **Egipto**, así en los vasos de madera como en los de piedra.
+
+**20** Y **Moisés** y **Aarón** hicieron como **Jehová** lo mandó; y alzando la vara golpeó las aguas que había en el río, en presencia de **Faraón** y de sus siervos; y todas las aguas que había en el río se convirtieron en **sangre**. **21** Asimismo los peces que había en el río murieron; y el río se corrompió, tanto que los **egipcios** no podían beber de él. Y hubo **sangre** por toda la tierra de **Egipto**.
+
+**22** Y los hechiceros de **Egipto** hicieron lo mismo con sus encantamientos; y el corazón de **Faraón** se endureció, y no los escuchó, como **Jehová** lo había dicho. **23** Y **Faraón** se volvió y fue a su casa, y no dio atención tampoco a esto. **24** Y en todo **Egipto** hicieron pozos alrededor del río para beber, porque no podían beber de las aguas del río.
+
+**25** Y se cumplieron siete días después que **Jehová** hirió el río.
+
+---
+
+## Capítulo 8
+
+### Segunda plaga: Las ranas
+
+**1** Entonces **Jehová** dijo a **Moisés**: Entra a la presencia de **Faraón** y dile: **Jehová** ha dicho así: *Deja ir a mi pueblo, para que me sirva*. **2** Y si no lo quisieres dejar ir, he aquí yo castigaré con **ranas** todo tu territorio. **3** Y el río criará **ranas**, las cuales subirán y entrarán en tu casa, en tu cámara, sobre tu cama, en las casas de tus siervos, en tu pueblo, en tus hornos y en tus artesas. **4** Y las **ranas** subirán sobre ti, sobre tu pueblo, y sobre todos tus siervos.
+
+**5** Y **Jehová** dijo a **Moisés**: Di a **Aarón**: Extiende tu mano con tu vara sobre los ríos, arroyos y estanques, para que haga subir **ranas** sobre la tierra de **Egipto**. **6** Entonces **Aarón** extendió su mano sobre las aguas de **Egipto**, y subieron **ranas** que cubrieron la tierra de **Egipto**. **7** Y los hechiceros hicieron lo mismo con sus encantamientos, e hicieron venir **ranas** sobre la tierra de **Egipto**.
+
+**8** Entonces **Faraón** llamó a **Moisés** y a **Aarón**, y les dijo: *Orad a **Jehová** para que quite las **ranas** de mí y de mi pueblo, y dejaré ir a tu pueblo para que ofrezca sacrificios a **Jehová***. **9** Y dijo **Moisés** a **Faraón**: Dígnate indicarme cuándo debo orar por ti, por tus siervos y por tu pueblo, para que las **ranas** sean quitadas de ti y de tus casas, y que solamente queden en el río.
+
+**10** Y él dijo: Mañana. Y **Moisés** respondió: Se hará conforme a tu palabra, para que conozcas que no hay como **Jehová** nuestro **Dios**. **11** Y las **ranas** se irán de ti, de tus casas, de tus siervos y de tu pueblo, y solamente quedarán en el río.
+
+**12** Entonces salieron **Moisés** y **Aarón** de la presencia de **Faraón**, y clamó **Moisés** a **Jehová** tocante a las **ranas** que había puesto a **Faraón**. **13** E hizo **Jehová** conforme a la palabra de **Moisés**, y murieron las **ranas** de las casas, de los cortijos y de los campos. **14** Y las juntaron en montones, y apestaba la tierra.
+
+**15** Pero viendo **Faraón** que le habían dado reposo, endureció su corazón y no los escuchó, como **Jehová** lo había dicho.
+
+---
+
+### Tercera plaga: Los piojos
+
+**16** Entonces **Jehová** dijo a **Moisés**: Di a **Aarón**: Extiende tu vara y golpea el polvo de la tierra, para que se vuelva **piojos** por todo el país de **Egipto**. **17** Y ellos lo hicieron así; y **Aarón** extendió su mano con su vara, y golpeó el polvo de la tierra, el cual se volvió **piojos**, así en los hombres como en las bestias; todo el polvo de la tierra se volvió **piojos** en todo el país de **Egipto**.
+
+**18** Y los hechiceros hicieron así también, para sacar **piojos** con sus encantamientos; pero no pudieron. Y había **piojos** así en los hombres como en las bestias. 
+
+> **19** Entonces los hechiceros dijeron a Faraón: **Dedo de Dios es este**. Mas el corazón de Faraón se endureció, y no los escuchó, como Jehová lo había dicho.
+
+---
+
+### Cuarta plaga: Las moscas
+
+**20** **Jehová** dijo a **Moisés**: Levántate de mañana y ponte delante de **Faraón**, he aquí él sale al río; y dile: **Jehová** ha dicho así: *Deja ir a mi pueblo, para que me sirva*. **21** Porque si no dejas ir a mi pueblo, he aquí yo enviaré sobre ti, sobre tus siervos, sobre tu pueblo y sobre tus casas toda clase de **moscas**; y las casas de los **egipcios** se llenarán de toda clase de **moscas**, y asimismo la tierra donde ellos estén.
+
+**22** Y aquel día yo apartaré la tierra de **Gosén**, en la cual habita mi pueblo, para que ninguna clase de **moscas** haya en ella, a fin de que sepas que yo soy **Jehová** en medio de la tierra. **23** Y yo pondré *redención* entre mi pueblo y el tuyo. Mañana será esta señal.
+
+**24** Y **Jehová** lo hizo así, y vino toda clase de **moscas** molestísimas sobre la casa de **Faraón**, sobre las casas de sus siervos, y sobre todo el país de **Egipto**; y la tierra fue corrompida a causa de ellas.
+
+**25** Entonces **Faraón** llamó a **Moisés** y a **Aarón**, y les dijo: Andad, ofreced sacrificio a vuestro **Dios** en la tierra. **26** Y **Moisés** respondió: No conviene que hagamos así, porque ofreceríamos a **Jehová** nuestro **Dios** la *abominación de los egipcios*. He aquí, si sacrificáramos la *abominación de los egipcios* delante de ellos, ¿no nos apedrearían? **27** Camino de tres días iremos por el desierto, y ofreceremos sacrificios a **Jehová** nuestro **Dios**, como él nos dirá.
+
+**28** Y dijo **Faraón**: Yo os dejaré ir para que ofrezcáis sacrificios a **Jehová** vuestro **Dios** en el desierto, con tal que no vayáis más lejos; orad por mí. **29** Y respondió **Moisés**: He aquí, al salir yo de tu presencia, rogaré a **Jehová** que las **moscas** se aparten de **Faraón**, de sus siervos y de su pueblo mañana; con tal que **Faraón** no falte más, no dejando ir al pueblo a ofrecer sacrificio a **Jehová**.
+
+**30** Entonces **Moisés** salió de la presencia de **Faraón**, y oró a **Jehová**. **31** Y **Jehová** hizo conforme a la palabra de **Moisés**, y quitó todas aquellas **moscas** de **Faraón**, de sus siervos y de su pueblo, sin que quedara una. **32** Mas **Faraón** endureció aun esta vez su corazón, y no dejó ir al pueblo.
+
+---
+
+## Capítulo 9
+
+### Quinta plaga: Peste sobre el ganado
+
+**1** Entonces **Jehová** dijo a **Moisés**: Entra a la presencia de **Faraón**, y dile: **Jehová**, el **Dios** de los hebreos, dice así: *Deja ir a mi pueblo, para que me sirva*. **2** Porque si no lo quieres dejar ir, y los detienes aún, **3** he aquí la mano de **Jehová** estará sobre tus ganados que están en el campo, caballos, asnos, camellos, vacas y ovejas, con **plaga gravísima**. **4** Y **Jehová** hará separación entre los ganados de **Israel** y los de **Egipto**, de modo que nada muera de todo lo de los hijos de **Israel**.
+
+**5** Y **Jehová** fijó plazo, diciendo: Mañana hará **Jehová** esta cosa en la tierra. **6** Y al día siguiente **Jehová** hizo aquello, y murió todo el ganado de **Egipto**; mas del ganado de los hijos de **Israel** no murió uno. **7** Entonces **Faraón** envió, y he aquí que del ganado de los hijos de **Israel** no había muerto uno. Mas el corazón de **Faraón** se endureció, y no dejó ir al pueblo.
+
+---
+
+### Sexta plaga: Úlceras
+
+**8** Y **Jehová** dijo a **Moisés** y a **Aarón**: Tomad puñados de ceniza de un horno, y la esparcirá **Moisés** hacia el cielo delante de **Faraón**; **9** y vendrá a ser polvo sobre toda la tierra de **Egipto**, el cual producirá sarpullido que cause **úlceras** en los hombres y en las bestias, por todo el país de **Egipto**.
+
+**10** Y tomaron ceniza del horno, y se pusieron delante de **Faraón**, y la esparció **Moisés** hacia el cielo; y hubo sarpullido que produjo **úlceras** tanto en los hombres como en las bestias. **11** Y los hechiceros no podían estar delante de **Moisés** a causa de las **úlceras**, porque hubo **úlceras** en los hechiceros y en todos los **egipcios**. **12** Pero **Jehová** endureció el corazón de **Faraón**, y no los oyó, como **Jehová** lo había dicho a **Moisés**.
+
+---
+
+### Séptima plaga: El granizo
+
+**13** Entonces **Jehová** dijo a **Moisés**: Levántate de mañana, y ponte delante de **Faraón**, y dile: **Jehová**, el **Dios** de los hebreos, dice así: *Deja ir a mi pueblo, para que me sirva*. **14** Porque yo enviaré esta vez todas mis plagas a tu corazón, sobre tus siervos y sobre tu pueblo, para que entiendas que no hay otro como yo en toda la tierra.
+
+**15** Porque ahora yo extenderé mi mano para herirte a ti y a tu pueblo de pestilencia, y serás quitado de la tierra. **16** Y a la verdad yo te he puesto para mostrar en ti mi poder, y para que mi nombre sea anunciado en toda la tierra.
+
+> **17** **¿Todavía te ensalzas tú contra mi pueblo, para no dejarlos ir?**
+
+**18** He aquí que mañana a estas horas yo haré llover **granizo** muy pesado, cual nunca hubo en **Egipto**, desde el día que se fundó hasta ahora. **19** Envía, pues, a recoger tu ganado, y todo lo que tienes en el campo; porque todo hombre o animal que se hallare en el campo, y no fuere recogido a casa, el **granizo** descenderá sobre él, y morirá.
+
+**20** De los siervos de **Faraón**, el que tuvo temor de la palabra de **Jehová** hizo huir sus criados y su ganado a casa; **21** mas el que no puso en su corazón la palabra de **Jehová**, dejó sus criados y sus ganados en el campo.
+
+**22** Y **Jehová** dijo a **Moisés**: Extiende tu mano hacia el cielo, para que venga **granizo** en toda la tierra de **Egipto** sobre los hombres, sobre las bestias, y sobre toda la hierba del campo en el país de **Egipto**. **23** Y **Moisés** extendió su vara hacia el cielo, y **Jehová** hizo tronar y granizar, y el fuego se descargaba sobre la tierra; y llovió **Jehová granizo** sobre la tierra de **Egipto**.
+
+**24** Hubo, pues, **granizo**, y fuego mezclado con el **granizo**, tan grande, cual nunca hubo en toda la tierra de **Egipto** desde que fue habitada. **25** Y aquel **granizo** hirió en toda la tierra de **Egipto** todo lo que estaba en el campo, así hombres como bestias; asimismo destrozó el **granizo** toda la hierba del campo, y desgajó todos los árboles del país. **26** Solamente en la tierra de **Gosén**, donde estaban los hijos de **Israel**, no hubo **granizo**.
+
+**27** Entonces **Faraón** envió a llamar a **Moisés** y a **Aarón**, y les dijo: *He pecado esta vez; **Jehová** es justo, y yo y mi pueblo impíos*. **28** Orad a **Jehová** para que cesen los truenos de **Dios** y el **granizo**, y yo os dejaré ir, y no os detendréis más.
+
+**29** Y le respondió **Moisés**: Tan pronto salga yo de la ciudad, extenderé mis manos a **Jehová**, y los truenos cesarán, y no habrá más **granizo**; para que sepas que de **Jehová** es la tierra. **30** Pero yo sé que ni tú ni tus siervos temeréis todavía la presencia de **Jehová Dios**.
+
+**31** El lino, pues, y la cebada fueron destrozados, porque la cebada estaba ya espigada, y el lino en caña. **32** Mas el trigo y el centeno no fueron destrozados, porque eran tardíos.
+
+**33** Y salió **Moisés** de la presencia de **Faraón** y de la ciudad, y extendió sus manos a **Jehová**, y cesaron los truenos y el **granizo**, y la lluvia no cayó más sobre la tierra. **34** Y viendo **Faraón** que la lluvia había cesado, y el **granizo** y los truenos, se obstinó en pecar, y endureció su corazón, él y sus siervos. **35** Y el corazón de **Faraón** se endureció, y no dejó ir a los hijos de **Israel**, como **Jehová** lo había dicho por medio de **Moisés**.
+
+---
+
+## Capítulo 10
+
+### Octava plaga: Las langostas
+
+**1** **Jehová** dijo a **Moisés**: Entra a la presencia de **Faraón**; porque yo he endurecido su corazón, y el corazón de sus siervos, para mostrar entre ellos estas mis señales, **2** y para que cuentes a tus hijos y a tus nietos las cosas que yo hice en **Egipto**, y mis señales que hice entre ellos; para que sepáis que yo soy **Jehová**.
+
+**3** Entonces vinieron **Moisés** y **Aarón** a **Faraón**, y le dijeron: **Jehová** el **Dios** de los hebreos ha dicho así: *¿Hasta cuándo no querrás humillarte delante de mí? Deja ir a mi pueblo, para que me sirva*. **4** Y si aún rehúsas dejarlo ir, he aquí que yo traeré mañana **langosta** en tu territorio, **5** la cual cubrirá la faz de la tierra, de modo que no pueda verse la tierra; y ella comerá lo que quedó salvo, lo que os dejó el **granizo**; comerá asimismo todo árbol que os produce fruto en el campo. **6** Y llenará tus casas, y las casas de todos tus siervos, y las casas de todos los **egipcios**, cual nunca vieron tus padres ni tus abuelos, desde que ellos existieron sobre la tierra hasta hoy. Y se volvió y salió de la presencia de **Faraón**.
+
+**7** Entonces los siervos de **Faraón** le dijeron: *¿Hasta cuándo será este hombre un lazo para nosotros? Deja ir a estos hombres, para que sirvan a **Jehová** su **Dios**. ¿Acaso no sabes todavía que **Egipto** está ya destruido?*
+
+**8** Y **Moisés** y **Aarón** volvieron a ser llamados ante **Faraón**, el cual les dijo: Andad, servid a **Jehová** vuestro **Dios**. ¿Quiénes son los que han de ir? **9** **Moisés** respondió: Hemos de ir con nuestros niños y con nuestros viejos, con nuestros hijos y con nuestras hijas; con nuestras ovejas y con nuestras vacas hemos de ir; porque es nuestra fiesta solemne de **Jehová**.
+
+**10** Y él les dijo: *¡Así sea **Jehová** con vosotros! ¿Cómo os voy a dejar ir a vosotros y a vuestros niños? ¡Mirad cómo el mal está delante de vuestro rostro!* **11** No será así; id ahora vosotros los varones, y servid a **Jehová**, pues esto es lo que vosotros pedisteis. Y los echaron de la presencia de **Faraón**.
+
+**12** Entonces **Jehová** dijo a **Moisés**: Extiende tu mano sobre la tierra de **Egipto** para traer la **langosta**, a fin de que suba sobre el país de **Egipto**, y consuma todo lo que el **granizo** dejó. **13** Y extendió **Moisés** su vara sobre la tierra de **Egipto**, y **Jehová** trajo un viento oriental sobre el país todo aquel día y toda aquella noche; y al venir la mañana el viento oriental trajo la **langosta**.
+
+**14** Y subió la **langosta** sobre toda la tierra de **Egipto**, y se asentó en todo el país de **Egipto** en tan gran cantidad como no la hubo antes ni la habrá después; **15** y cubrió la faz de todo el país, y oscureció la tierra; y consumió toda la hierba de la tierra, y todo el fruto de los árboles que había dejado el **granizo**; no quedó cosa verde en árboles ni en hierba del campo, por toda la tierra de **Egipto**.
+
+**16** Entonces **Faraón** se apresuró a llamar a **Moisés** y a **Aarón**, y dijo: *He pecado contra **Jehová** vuestro **Dios**, y contra vosotros*. **17** Mas os ruego ahora que perdonéis mi pecado solamente esta vez, y que oréis a **Jehová** vuestro **Dios** que quite de mí al menos esta plaga mortal.
+
+**18** Y salió **Moisés** de delante de **Faraón**, y oró a **Jehová**. **19** Entonces **Jehová** trajo un fortísimo viento occidental, y quitó la **langosta** y la arrojó en el **Mar Rojo**; ni una **langosta** quedó en todo el país de **Egipto**. **20** Pero **Jehová** endureció el corazón de **Faraón**, y este no dejó ir a los hijos de **Israel**.
+
+---
+
+### Novena plaga: Las tinieblas
+
+**21** **Jehová** dijo a **Moisés**: Extiende tu mano hacia el cielo, para que haya **tinieblas** sobre la tierra de **Egipto**, tanto que cualquiera las palpe. **22** Y extendió **Moisés** su mano hacia el cielo, y hubo densas **tinieblas** sobre toda la tierra de **Egipto**, por tres días.
+
+> **23** **Ninguno vio a su prójimo, ni nadie se levantó de su lugar en tres días; mas todos los hijos de Israel tenían luz en sus habitaciones.**
+
+**24** Entonces **Faraón** hizo llamar a **Moisés**, y dijo: Id, servid a **Jehová**; solamente queden vuestras ovejas y vuestras vacas; vayan también vuestros niños con vosotros. **25** Y **Moisés** respondió: Tú también nos darás sacrificios y holocaustos que sacrifiquemos para **Jehová** nuestro **Dios**. **26** Nuestros ganados irán también con nosotros; no quedará ni una pezuña; porque de ellos hemos de tomar para servir a **Jehová** nuestro **Dios**, y no sabemos con qué hemos de servir a **Jehová** hasta que lleguemos allá.
+
+**27** Pero **Jehová** endureció el corazón de **Faraón**, y no quiso dejarlos ir. **28** Y le dijo **Faraón**: *Retírate de mí; guárdate que no veas más mi rostro, porque en cualquier día que vieres mi rostro, morirás*. **29** Y **Moisés** respondió: Bien has dicho; no veré más tu rostro.
+
+---
+
+## Tabla Resumen: Las Diez Plagas sobre Egipto
+
+| **#** | **Plaga** | **Referencia** | **Resultado** | **Endurecimiento del Corazón** |
+|-------|-----------|----------------|---------------|-------------------------------|
+| **1** | Agua convertida en sangre | Cap. 7:14-25 | Los hechiceros la imitan | Faraón endurece su corazón |
+| **2** | Ranas | Cap. 8:1-15 | Los hechiceros la imitan; Faraón promete liberar al pueblo pero se retracta | Faraón endurece su corazón |
+| **3** | Piojos | Cap. 8:16-19 | Los hechiceros NO pueden imitarla; declaran: "Dedo de Dios es este" | Faraón endurece su corazón |
+| **4** | Moscas | Cap. 8:20-32 | Distinción: Gosén queda libre; Faraón negocia pero se retracta | Faraón endurece su corazón |
+| **5** | Peste sobre el ganado | Cap. 9:1-7 | Solo muere el ganado egipcio | Faraón endurece su corazón |
+| **6** | Úlceras | Cap. 9:8-12 | Los hechiceros no pueden ni estar ante Moisés | **Jehová endurece** el corazón de Faraón |
+| **7** | Granizo | Cap. 9:13-35 | Faraón confiesa su pecado, pero se retracta cuando cesa la plaga | Faraón se obstina y endurece su corazón |
+| **8** | Langostas | Cap. 10:1-20 | Consumen todo lo que dejó el granizo; Faraón pide perdón | **Jehová endurece** el corazón de Faraón |
+| **9** | Tinieblas | Cap. 10:21-29 | Tinieblas palpables por 3 días; luz en Gosén; Faraón amenaza a Moisés | **Jehová endurece** el corazón de Faraón |
+| **10** | Muerte de los primogénitos | Cap. 11-12 | *(Narrada en capítulos siguientes)* | Liberación final de Israel |
+
+---
+
+## Notas de Estudio
+
+### Temas Teológicos Clave (Capítulos 6-10)
+
+**1. La Soberanía de Dios sobre la Creación**
+- Cada plaga demuestra el poder absoluto de **Jehová** sobre los elementos naturales: agua, animales, clima, luz y oscuridad.
+- Las plagas desafían directamente a los dioses egipcios (el Nilo, Ra el dios sol, etc.).
+
+**2. El Endurecimiento del Corazón de Faraón**
+- En las primeras plagas, **Faraón** endurece su propio corazón (resistencia voluntaria).
+- A partir de la sexta plaga, **Jehová** endurece el corazón de **Faraón** (juicio divino sobre la rebelión persistente).
+- Este patrón revela tanto la responsabilidad humana como la soberanía divina.
+
+**3. La Distinción entre Israel y Egipto**
+- A partir de la cuarta plaga (moscas), **Dios** hace una separación clara entre su pueblo y los **egipcios**.
+- **Gosén** permanece protegida, demostrando que **Jehová** cuida de los suyos.
+
+**4. El Propósito Redentor de las Plagas**
+- Las plagas no son actos de crueldad arbitraria, sino juicios con propósito:
+  - Para que **Egipto** conozca que **Jehová** es **Dios** (Éxodo 7:5).
+  - Para que **Israel** cuente a las generaciones futuras las obras de **Dios** (Éxodo 10:2).
+  - Para que el nombre de **Jehová** sea proclamado en toda la tierra (Éxodo 9:16).
+
+**5. La Genealogía de Moisés y Aarón (Capítulo 6:14-27)**
+- Esta sección confirma la legitimidad y el linaje sacerdotal de **Aarón**.
+- Establece la conexión de **Moisés** con la tribu de **Leví**.
+
+---
+
+### Progresión de las Plagas
+
+Las plagas aumentan en **severidad** y **alcance**:
+1. Incomodidad (sangre, ranas, piojos, moscas)
+2. Pérdida económica (ganado, granizo, langostas)
+3. Dolor físico (úlceras)
+4. Terror existencial (tinieblas)
+5. Muerte (primogénitos - capítulo 11-12)
+
+---
+
+### Versículos Clave para Memorización (Resumen)
+
+> **Éxodo 6:6-7** — **Yo soy JEHOVÁ; y yo os sacaré de debajo de las tareas pesadas de Egipto, y os libraré de su servidumbre, y os redimiré con brazo extendido, y con juicios grandes; y os tomaré por mi pueblo y seré vuestro Dios.**
+
+> **Éxodo 7:5** — **Y sabrán los egipcios que yo soy JEHOVÁ, cuando extienda mi mano sobre Egipto, y saque a los hijos de Israel de en medio de ellos.**
+
+> **Éxodo 8:19** — **Entonces los hechiceros dijeron a Faraón: Dedo de Dios es este.**
+
+> **Éxodo 9:16** — **Y a la verdad yo te he puesto para mostrar en ti mi poder, y para que mi nombre sea anunciado en toda la tierra.**
+
+> **Éxodo 10:2** — **Y para que cuentes a tus hijos y a tus nietos las cosas que yo hice en Egipto, y mis señales que hice entre ellos; para que sepáis que yo soy Jehová.**
+
+> **Éxodo 10:23** — **Ninguno vio a su prójimo, ni nadie se levantó de su lugar en tres días; mas todos los hijos de Israel tenían luz en sus habitaciones.**
